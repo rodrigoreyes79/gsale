@@ -1,28 +1,22 @@
 # Garage Sale
 
+Entrega el 15 de Diciembre (a menos que se especifique otra fecha en el item en venta).
+
 ## Horno: $280
-Entrega: Diciembre 15
 
 ## Calentador Agua: $100
-Entrega: Diciembre 15
 
 ## Aire acondicionado Oficina: $300
-Entrega: Diciembre 15
 
 ## Aire acondicionado Mati: $250
-Entrega: Diciembre 15
 
 ## Aire acondicionado Julieta: $300
-Entrega: Diciembre 15
 
 ## Dos Tanques de gas: $80
-Entrega: Diciembre 15
 
 ## Repisas comedor: $50
-Entrega: Diciembre 15
 
 ## Mini componente Sony: $100
-Entrega: Diciembre 15
 
 ## Mesa de comedor: $400
 
@@ -56,7 +50,7 @@ Entrega: Diciembre 15
 
 ## Colchón cama papás: $50
 
-## Sillón cuarto papás: 
+## Sillón cuarto papás: $180
 
 
 # Otros
