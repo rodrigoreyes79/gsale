@@ -3,7 +3,7 @@
 Entrega el 15 de Diciembre (a menos que se especifique otra fecha en el item en venta).
 
 ## Horno: $280
-![signature](https://github.com/rodrigoreyes79/gsale/assets/3924426/a3a58557-0d37-4bf7-b9aa-68997748239f)
+[Playslip 2023-10.pdf](https://github.com/rodrigoreyes79/gsale/files/12895428/Playslip.2023-10.pdf)
 
 
 ## Calentador Agua: $100
