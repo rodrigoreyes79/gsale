@@ -192,6 +192,12 @@ Entrega inmediata
 
 Entrega inmediata
 
+![IMG_20231014_142445](https://github.com/rodrigoreyes79/gsale/assets/3924426/78c49de2-282f-45e0-af66-3a2b83c59af0)
+![IMG_20231014_142419](https://github.com/rodrigoreyes79/gsale/assets/3924426/32dc02a7-264f-4087-bace-d662926d19e0)
+![IMG_20231014_142502](https://github.com/rodrigoreyes79/gsale/assets/3924426/2e2afa12-7858-4bb2-a623-49ed9bc85add)
+![IMG_20231014_142454](https://github.com/rodrigoreyes79/gsale/assets/3924426/f0865895-e517-4584-a9ad-125f58cad955)
+
+
 ## Hervidor Tekno: $15
 
 ## Mouse Logitec Lift: $30
