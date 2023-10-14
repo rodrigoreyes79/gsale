@@ -112,6 +112,8 @@ Entrega inmediata
 
 ## Televisor LG LCD de 42' 42LH20R-MA: $50
 
+**IMPORTANTE**: Los parlantes están dañados y los botones cuesta presionarlos pero la televisión tiene buen tamaño y puede ser usada con parlantes externos sin problema.
+
 ## Televisor Samsung LED de 32' UN32FH4005H: $60
 
 ## Televisor LG LCD de 43' 43LK5700PSC: $300
