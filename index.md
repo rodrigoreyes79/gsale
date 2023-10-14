@@ -73,6 +73,12 @@ Entrega inmediata
 
 ![IMG_20231014_153043](https://github.com/rodrigoreyes79/gsale/assets/3924426/c16e9979-f196-4df2-ab0f-f7934e3b3db2)
 
+Audífonos EarFun® Air True Wireless Earbuds, Bluetooth Earbuds: $20
+
+Entrega inmediata
+
+![IMG_20231014_172859](https://github.com/rodrigoreyes79/gsale/assets/3924426/88a69666-6015-442f-98e0-301b51563da3)
+
 ## Dos Tanques de gas: $80
 
 ## Repisas comedor: $50
