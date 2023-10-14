@@ -106,6 +106,8 @@ Entrega inmediata. No incluye adornos de la foto.
 
 ## Mesa Terraza: $350
 
+![WhatsApp Image 2023-10-14 at 17 44 09](https://github.com/rodrigoreyes79/gsale/assets/3924426/3c5ac4ad-f79c-4bc1-a22f-a9a92b97cd29)
+
 ## Mesa convertible: $50
 
 Entrega inmediata
