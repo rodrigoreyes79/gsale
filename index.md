@@ -2,16 +2,6 @@
 
 Entrega el 15 de Diciembre (a menos que se especifique otra fecha en el item en venta).
 
-## Horno: $280
-
-## Calentador Agua: $100
-
-## Aire acondicionado Oficina: $300
-
-## Aire acondicionado Mati: $250
-
-## Aire acondicionado Julieta: $300
-
 ## Dos Tanques de gas: $80
 
 ## Repisas comedor: $50
@@ -83,10 +73,14 @@ Entrega inmediata
 ![IMG_20231014_131253](https://github.com/rodrigoreyes79/gsale/assets/3924426/d99caa58-8a2f-4d2b-a5cf-b330e3ae09fd)
 
 
-# Otros
+# Vendidos
 
-## Tanque de presión
+## Horno: $280
 
-## Conexión para Aire en oficina trasera
+## Calentador Agua: $100
 
-## Arreglos de oficina trasera
+## Aire acondicionado Oficina: $300
+
+## Aire acondicionado Mati: $250
+
+## Aire acondicionado Julieta: $300
