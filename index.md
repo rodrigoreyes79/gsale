@@ -71,6 +71,13 @@ Entrega inmediata
 
 ![IMG_20231014_152553](https://github.com/rodrigoreyes79/gsale/assets/3924426/cd641696-ad3c-4d75-89fc-0d714567818d)
 
+## Soundbar Logitec USB: $15
+
+Entrega inmediata
+
+![Uploading IMG_20231014_153043.jpg…]()
+
+
 ## Dos Tanques de gas: $80
 
 ## Repisas comedor: $50
