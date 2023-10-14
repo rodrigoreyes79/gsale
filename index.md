@@ -26,6 +26,9 @@ https://github.com/rodrigoreyes79/gsale/assets/3924426/efee1ccc-f8e0-4394-9e77-c
 
 ## Piano electrónico: $100
 
+![IMG_20231014_133749](https://github.com/rodrigoreyes79/gsale/assets/3924426/e348ff63-0bf5-4dc0-96b5-1848eda6e384)
+![IMG_20231014_133756](https://github.com/rodrigoreyes79/gsale/assets/3924426/a8ded512-39e1-49a0-8d19-6b0467b55865)
+
 ## Mesa Muebles Bien Hechos: $350
 
 ## Mesa convertible: $50
