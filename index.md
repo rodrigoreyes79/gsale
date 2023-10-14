@@ -4,6 +4,8 @@ Entrega el 15 de Diciembre (a menos que se especifique otra fecha en el item en 
 
 ## Coffee Bar: $250
 
+No incluye cafetera, molino o el resto de los utensilios que aparecen en la foto.
+
 ![IMG_20231014_133145](https://github.com/rodrigoreyes79/gsale/assets/3924426/2a668d16-7912-4fd9-80d8-8a6f25937360)
 
 ![WhatsApp Image 2023-10-14 at 13 32 19](https://github.com/rodrigoreyes79/gsale/assets/3924426/f6a0b28f-67bb-4360-9e92-e8f6010bc51a)
