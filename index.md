@@ -222,7 +222,7 @@ Entrega inmediata
 
 # Vendidos
 
-## Monitor LED LG 23EA53: $40
+## Monitor LED LG 23EA53: $40 - Gustavo Rodríguez
 
 ## Gaming Monitor: $100 - Juan Pablo Reyes
 
