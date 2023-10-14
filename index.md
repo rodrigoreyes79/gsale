@@ -119,8 +119,6 @@ Entrega inmediata
 
 ## Lavadora: $120
 
-## Secadora: $40
-
 ## Mueble de madera con cajón: $30
 
 Entrega inmediata
@@ -208,6 +206,8 @@ Entrega inmediata
 ---
 
 # Vendidos
+
+## Secadora: $40
 
 ## Piano electrónico: $100
 
