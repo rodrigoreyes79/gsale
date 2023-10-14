@@ -14,10 +14,6 @@ No incluye cafetera, molino o el resto de los utensilios que aparecen en la foto
 
 ![IMG_20231014_133813](https://github.com/rodrigoreyes79/gsale/assets/3924426/4cb7eab8-39d6-4e4d-adc1-7097d12345a4)
 
-## Librero de madera: $35 (sin libros)
-
-![WhatsApp Image 2023-10-14 at 13 40 05](https://github.com/rodrigoreyes79/gsale/assets/3924426/d1ef0ab7-5b68-44e9-b46b-2b43d894e9cb)
-
 ## Alfombra rosa: $40
 
 Entrega inmediata
@@ -206,6 +202,10 @@ Entrega inmediata
 ---
 
 # Vendidos
+
+## Librero de madera: $35 (sin libros)
+
+![WhatsApp Image 2023-10-14 at 13 40 05](https://github.com/rodrigoreyes79/gsale/assets/3924426/d1ef0ab7-5b68-44e9-b46b-2b43d894e9cb)
 
 ## Secadora: $40
 
