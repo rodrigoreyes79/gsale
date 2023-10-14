@@ -8,9 +8,18 @@ Entrega el 15 de Diciembre (a menos que se especifique otra fecha en el item en 
 
 ![WhatsApp Image 2023-10-14 at 13 32 19](https://github.com/rodrigoreyes79/gsale/assets/3924426/f6a0b28f-67bb-4360-9e92-e8f6010bc51a)
 
-## Mesa aparador: $60
+## Mesa aparador: $50
 
 ![IMG_20231014_133813](https://github.com/rodrigoreyes79/gsale/assets/3924426/4cb7eab8-39d6-4e4d-adc1-7097d12345a4)
+
+## Librero de madera: $35 (sin libros)
+
+![WhatsApp Image 2023-10-14 at 13 40 05](https://github.com/rodrigoreyes79/gsale/assets/3924426/d1ef0ab7-5b68-44e9-b46b-2b43d894e9cb)
+
+## Alfombra rosa: $40
+
+![WhatsApp Image 2023-10-14 at 13 40 17](https://github.com/rodrigoreyes79/gsale/assets/3924426/2c71a24c-68af-47af-bb16-dbc816fe9c40)
+
 
 ## Dos Tanques de gas: $80
 
