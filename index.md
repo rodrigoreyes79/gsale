@@ -176,8 +176,6 @@ Entrega inmediata
 
 ## Impresora Laser Samsung M2020W: $30
 
-## Monitor LED LG 23EA53: $40
-
 ## Cámara Canon Powershot SX10IS: $40
 
 Entrega inmediata
@@ -223,6 +221,8 @@ Entrega inmediata
 ---
 
 # Vendidos
+
+## Monitor LED LG 23EA53: $40
 
 ## Gaming Monitor: $100 - Juan Pablo Reyes
 
