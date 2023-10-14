@@ -2,6 +2,14 @@
 
 Entrega el 15 de Diciembre (a menos que se especifique otra fecha en el item en venta).
 
+## Coffee Bar: $250
+
+![IMG_20231014_133145](https://github.com/rodrigoreyes79/gsale/assets/3924426/2a668d16-7912-4fd9-80d8-8a6f25937360)
+
+![WhatsApp Image 2023-10-14 at 13 32 19](https://github.com/rodrigoreyes79/gsale/assets/3924426/f6a0b28f-67bb-4360-9e92-e8f6010bc51a)
+
+https://github.com/rodrigoreyes79/gsale/assets/3924426/efee1ccc-f8e0-4394-9e77-c1cf6514acfa
+
 ## Dos Tanques de gas: $80
 
 ## Repisas comedor: $50
