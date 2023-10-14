@@ -20,49 +20,15 @@ Entrega el 15 de Diciembre (a menos que se especifique otra fecha en el item en 
 
 ![WhatsApp Image 2023-10-14 at 13 40 17](https://github.com/rodrigoreyes79/gsale/assets/3924426/2c71a24c-68af-47af-bb16-dbc816fe9c40)
 
-
-## Dos Tanques de gas: $80
-
-## Repisas comedor: $50
-
 ## Mini componente Sony: $100
 
 ![IMG_20231014_133852](https://github.com/rodrigoreyes79/gsale/assets/3924426/ccb8e018-f493-45ef-a3f0-5e80ed78cbf5)
-
-## Mesa de comedor: $400
-
-## Sofa gris: $380
-
-## Sofa café oscuro: $100
-
-## Repisa libros: $250
 
 ## Piano electrónico: $100
 
 ![IMG_20231014_133749](https://github.com/rodrigoreyes79/gsale/assets/3924426/e348ff63-0bf5-4dc0-96b5-1848eda6e384)
 ![IMG_20231014_133756](https://github.com/rodrigoreyes79/gsale/assets/3924426/a8ded512-39e1-49a0-8d19-6b0467b55865)
-
-## Mesa Muebles Bien Hechos: $350
-
-## Mesa convertible: $50
-
-## Parrilla: $40
-
-## Mesa pequeña redonda con sillas: $40
-
-## Barra ejercicios: $50
-
-## Mueble cajones: $120
-
-## Mueble recibidor: $50
-
-## Cajoneras oficina: $40
-
-## Respaldar cama: $80
-
-## Colchón cama papás: $50
-
-## Sillón cuarto papás: $180
+Especificación: http://arch.casio-intl.com/latin/es/emi/standard/ctk3200/
 
 ## Lego Minecraft Bee Cottage 254pcs: $28
 
@@ -93,6 +59,38 @@ Entrega inmediata
 Entrega inmediata
 
 ![IMG_20231014_131253](https://github.com/rodrigoreyes79/gsale/assets/3924426/d99caa58-8a2f-4d2b-a5cf-b330e3ae09fd)
+
+## Dos Tanques de gas: $80
+
+## Repisas comedor: $50
+
+## Mesa de comedor: $400
+
+## Sofa gris: $380
+
+## Sofa café oscuro: $100
+
+## Repisa libros: $250
+
+## Mesa Terraza: $350
+
+## Mesa convertible: $50
+
+## Parrilla: $40
+
+## Mesa pequeña redonda con sillas: $40
+
+## Barra ejercicios: $50
+
+## Mueble cajones: $120
+
+## Cajoneras oficina: $40
+
+## Respaldar cama: $80
+
+## Colchón cama papás: $50
+
+## Sillón cuarto papás: $180
 
 
 # Vendidos
