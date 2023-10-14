@@ -3,8 +3,6 @@
 Entrega el 15 de Diciembre (a menos que se especifique otra fecha en el item en venta).
 
 ## Horno: $280
-[Playslip 2023-10.pdf](https://github.com/rodrigoreyes79/gsale/files/12895428/Playslip.2023-10.pdf)
-
 
 ## Calentador Agua: $100
 
@@ -53,6 +51,16 @@ Entrega el 15 de Diciembre (a menos que se especifique otra fecha en el item en 
 ## Colchón cama papás: $50
 
 ## Sillón cuarto papás: $180
+
+## Lego Minecraft Bee Cottage 254pcs: $28
+
+## Lego Minecraft The Fox Lodge 193pcs: $26
+
+## Lego Minecraft The Coral Reef 92pcs: $14
+
+## Lego Minecraft The swamp Adventura 65pcs: $12
+
+## Lego Minecraft The Abandoned Mine 248pcs: $27
 
 
 # Otros
