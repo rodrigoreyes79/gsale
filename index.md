@@ -222,6 +222,8 @@ Entrega inmediata
 
 # Vendidos
 
+## Gaming Monitor: $100 - Juan Pablo Reyes
+
 ## Librero de madera: $35 (sin libros) - Andreita Mesa
 
 ![WhatsApp Image 2023-10-14 at 13 40 05](https://github.com/rodrigoreyes79/gsale/assets/3924426/d1ef0ab7-5b68-44e9-b46b-2b43d894e9cb)
