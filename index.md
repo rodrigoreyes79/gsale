@@ -133,6 +133,8 @@ Entrega inmediata
 
 ## Cámara Canon Powershot SX10IS: $40
 
+## Hervidor Tekno: $15
+
 ---
 
 # Vendidos
