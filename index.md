@@ -125,6 +125,14 @@ Entrega inmediata
 
 ## Audífonos Soundcore Q30: $50
 
+## Impresora HP Deskjet Ink Advantage: $40
+
+## Impresora Laser Samsung M2020W: $30
+
+## Monitor LED LG 23EA53: $40
+
+## Cámara Canon Powershot SX10IS: $40
+
 ---
 
 # Vendidos
