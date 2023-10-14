@@ -75,8 +75,7 @@ Entrega inmediata
 
 Entrega inmediata
 
-![Uploading IMG_20231014_153043.jpg…]()
-
+![IMG_20231014_153043](https://github.com/rodrigoreyes79/gsale/assets/3924426/c16e9979-f196-4df2-ab0f-f7934e3b3db2)
 
 ## Dos Tanques de gas: $80
 
