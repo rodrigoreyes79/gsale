@@ -96,6 +96,18 @@ Entrega inmediata. No incluye adornos de la foto.
 
 ![WhatsApp Image 2023-10-14 at 17 34 29](https://github.com/rodrigoreyes79/gsale/assets/3924426/6aa038a6-b35d-47c4-a877-b0ff0e2eec2b)
 
+## Purificador de Aire Coway Airmega AP-1512HH: $150
+
+![IMG_20231014_180314](https://github.com/rodrigoreyes79/gsale/assets/3924426/afdc441b-58b0-40a3-b246-71dff11c0e92)
+
+## Televisor Samsung LED de 24' T24E310LB: $60
+
+## Televisor LG LCD de 42' 42LH20R-MA: $50
+
+## Televisor Samsung LED de 32' UN32FH4005H: $60
+
+## Televisor LG LCD de 43' 43LK5700PSC: $300
+
 ## Dos Tanques de gas: $80
 
 ## Repisas comedor: $50
