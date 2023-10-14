@@ -88,6 +88,8 @@ Entrega inmediata
 
 Mesa pequeña centro de madera: $40
 
+Entrega inmediata. No incluye adornos de la foto.
+
 ![WhatsApp Image 2023-10-14 at 17 34 29](https://github.com/rodrigoreyes79/gsale/assets/3924426/6aa038a6-b35d-47c4-a877-b0ff0e2eec2b)
 
 ## Dos Tanques de gas: $80
