@@ -119,7 +119,7 @@ Entrega inmediata
 
 ## Esterilizador: $60
 
-## Teclado Durgod: $40
+## Teclado Mecánico Wired Durgod: $40
 
 ## Teclado Logitec: $30
 
