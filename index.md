@@ -20,6 +20,8 @@ No incluye cafetera, molino o el resto de los utensilios que aparecen en la foto
 
 ## Alfombra rosa: $40
 
+Entrega inmediata
+
 ![WhatsApp Image 2023-10-14 at 13 40 17](https://github.com/rodrigoreyes79/gsale/assets/3924426/2c71a24c-68af-47af-bb16-dbc816fe9c40)
 
 ## Mini componente Sony: $100
@@ -58,8 +60,16 @@ Entrega inmediata
 
 ## Cámara vigilancia (sin abrir): $40
 
+Entrega inmediata
+
 ![IMG_20231014_141230](https://github.com/rodrigoreyes79/gsale/assets/3924426/806ef330-ee92-44cc-ba7b-3e8c41c46c85)
 ![IMG_20231014_141427](https://github.com/rodrigoreyes79/gsale/assets/3924426/aa59b800-b2be-4fda-b25d-f7402911e895)
+
+## Jarra para extracción de leche vegetal: $10
+
+Entrega inmediata
+
+![IMG_20231014_152553](https://github.com/rodrigoreyes79/gsale/assets/3924426/cd641696-ad3c-4d75-89fc-0d714567818d)
 
 ## Dos Tanques de gas: $80
 
@@ -77,11 +87,19 @@ Entrega inmediata
 
 ## Mesa convertible: $50
 
+Entrega inmediata
+
 ## Parrilla: $40
+
+Entrega inmediata
 
 ## Mesa pequeña redonda con sillas: $40
 
+Entrega inmediata
+
 ## Barra ejercicios: $50
+
+Entrega inmediata
 
 ## Mueble cajones: $120
 
@@ -99,6 +117,8 @@ Entrega inmediata
 
 ## Mueble de madera con cajón: $30
 
+Entrega inmediata
+
 ## Purificador de agua: $200
 
 ## Repisa con ruedas: $50
@@ -107,7 +127,7 @@ Entrega inmediata
 
 ## Licuadora: $70
 
-## Olla arroz: $20
+## Olla arrocera eléctrica: $20
 
 ## Refrigeradora: $50
 
@@ -115,13 +135,19 @@ Entrega inmediata
 
 ## Pizarra de marcadores: $20
 
+Entrega inmediata
+
 ## Microondas Indurama: $100
 
 ## Esterilizador: $60
 
 ## Teclado Mecánico Wired Durgod: $40
 
+Entrega inmediata
+
 ## Teclado Logitec: $30
+
+Entrega inmediata
 
 ## Audífonos Soundcore Q30: $50
 
@@ -133,25 +159,45 @@ Entrega inmediata
 
 ## Cámara Canon Powershot SX10IS: $40
 
+Entrega inmediata
+
 ## Hervidor Tekno: $15
 
 ## Mouse Logitec Lift: $30
 
+Entrega inmediata
+
 ## Bicicleta Corona: $50
+
+Entrega inmediata
 
 ## Bicicleta Mediana Niña: $20
 
+Entrega inmediata
+
 ## Bicicleta Mediana Niñ0: $20
+
+Entrega inmediata
 
 ## Bicicleta Pequeña Niña: $20
 
+Entrega inmediata
+
 ## Casco deportivo Adulto Hombre: $15
 
+Entrega inmediata
+
 ## Casco deportivo Niña: $10
+
+Entrega inmediata
 
 ## Casco deportivo Niño: $10
 
+Entrega inmediata
+
 ## Casco deportivo Niña: $10
+
+Entrega inmediata
 
 ---
 
