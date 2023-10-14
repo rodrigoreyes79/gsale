@@ -10,7 +10,7 @@ Entrega el 15 de Diciembre (a menos que se especifique otra fecha en el item en 
 
 ![video](https://github.com/rodrigoreyes79/gsale/assets/3924426/efee1ccc-f8e0-4394-9e77-c1cf6514acfa)
 
-## Mesa aparador: 
+## Mesa aparador: $60
 
 ![IMG_20231014_133813](https://github.com/rodrigoreyes79/gsale/assets/3924426/4cb7eab8-39d6-4e4d-adc1-7097d12345a4)
 
