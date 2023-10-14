@@ -2,6 +2,10 @@
 
 Entrega el 15 de Diciembre (a menos que se especifique otra fecha en el item en venta).
 
+## Mesa Terraza: $350
+
+![WhatsApp Image 2023-10-14 at 17 44 09](https://github.com/rodrigoreyes79/gsale/assets/3924426/3c5ac4ad-f79c-4bc1-a22f-a9a92b97cd29)
+
 ## Coffee Bar: $250
 
 No incluye cafetera, molino o el resto de los utensilios que aparecen en la foto.
@@ -103,10 +107,6 @@ Entrega inmediata. No incluye adornos de la foto.
 ## Sofa café oscuro: $100
 
 ## Repisa libros: $250
-
-## Mesa Terraza: $350
-
-![WhatsApp Image 2023-10-14 at 17 44 09](https://github.com/rodrigoreyes79/gsale/assets/3924426/3c5ac4ad-f79c-4bc1-a22f-a9a92b97cd29)
 
 ## Mesa convertible: $50
 
