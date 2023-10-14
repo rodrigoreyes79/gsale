@@ -86,6 +86,42 @@ Entrega inmediata
 
 ## Sillón cuarto papás: $180
 
+## Lavadora: $120
+
+## Secadora: $40
+
+## Mueble de madera con cajón: $30
+
+## Purificador de agua: $200
+
+## Repisa con ruedas: $50
+
+## Ozonificador de agua: 
+
+## Licuadora: $70
+
+## Olla arroz: $20
+
+## Refrigeradora: $50
+
+## Congelador: $100
+
+## Pizarra de marcadores: $20
+
+## Microondas Indurama: $100
+
+## Esterilizador: $60
+
+## Teclado Durgod: $40
+
+## Teclado Logitec: $30
+
+## Cámara vigilancia (sin abrir): $50
+
+![IMG_20231014_141230](https://github.com/rodrigoreyes79/gsale/assets/3924426/806ef330-ee92-44cc-ba7b-3e8c41c46c85)
+![IMG_20231014_141427](https://github.com/rodrigoreyes79/gsale/assets/3924426/aa59b800-b2be-4fda-b25d-f7402911e895)
+
+---
 
 # Vendidos
 
@@ -104,3 +140,7 @@ Especificación: http://arch.casio-intl.com/latin/es/emi/standard/ctk3200/
 ## Aire acondicionado Mati: $250
 
 ## Aire acondicionado Julieta: $300
+
+## Lavavajillas: $60
+
+
