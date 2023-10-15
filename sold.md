@@ -67,3 +67,9 @@ Incluye brazo sujetador.
 Incluye brazo sujetador.
 
 **IMPORTANTE**: Los parlantes están dañados y los botones cuesta presionarlos pero la televisión tiene buen tamaño y puede ser usada con parlantes externos sin problema.
+
+---
+
+# Jeannette Reyes
+
+## Bicicleta Corona: $50
