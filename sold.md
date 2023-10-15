@@ -1,5 +1,12 @@
 # Vendidos
 
+## Mesa Plegable 120 x 61 cm: $40 - Juan Pablo Reyes
+
+Entrega inmediata
+
+![SCR-20231014-pkws](https://github.com/rodrigoreyes79/gsale/assets/3924426/ad0f4cec-89eb-4d16-aaea-8ffeae8cbb9d)
+![SCR-20231014-pkzw](https://github.com/rodrigoreyes79/gsale/assets/3924426/a84b886b-c14c-4dea-9237-9e3d9be1093d)
+
 ## Televisor Samsung LED de 32' UN32FH4005H: $60 - Andreita Eguez
 
 ## Monitor LED LG 23EA53: $40 - Gustavo Rodríguez
