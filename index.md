@@ -147,6 +147,16 @@ Entrega inmediata
 ![WhatsApp Image 2023-10-14 at 20 54 27 (1)](https://github.com/rodrigoreyes79/gsale/assets/3924426/f8eb0955-a520-49a8-b5aa-01e82cfc3730)
 ![WhatsApp Image 2023-10-14 at 20 54 27 (2)](https://github.com/rodrigoreyes79/gsale/assets/3924426/d4eb8d4c-2bf0-46c0-8595-0f8baad3e03c)
 
+## Casa de juguete de Gaby: $40
+
+Entrega inmediata
+
+![WhatsApp Image 2023-10-15 at 09 33 03](https://github.com/rodrigoreyes79/gsale/assets/3924426/66053ddb-24b6-4a5f-8b62-3d5569df7f9f)
+![WhatsApp Image 2023-10-15 at 09 33 03 (1)](https://github.com/rodrigoreyes79/gsale/assets/3924426/1d95a909-827c-4aeb-9f6f-0204cd18b759)
+![WhatsApp Image 2023-10-15 at 09 33 03 (2)](https://github.com/rodrigoreyes79/gsale/assets/3924426/c19e29a9-7d61-46b5-b48d-de89608dce6c)
+![WhatsApp Image 2023-10-15 at 09 33 16](https://github.com/rodrigoreyes79/gsale/assets/3924426/4579505a-8ddb-431a-adf4-821e8ce90bde)
+![WhatsApp Image 2023-10-15 at 09 33 16 (1)](https://github.com/rodrigoreyes79/gsale/assets/3924426/bc651cef-5ef6-401d-9e48-32a9eb5ff435)
+
 ## Televisor LG LCD de 43' 43LK5700PSC: $300
 
 Incluye brazo sujetador.
