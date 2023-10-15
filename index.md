@@ -174,11 +174,17 @@ Entrega inmediata
 
 ## Televisor Samsung LED de 24' T24E310LB: $60
 
+Incluye brazo sujetador.
+
 ## Televisor LG LCD de 42' 42LH20R-MA: $50
+
+Incluye brazo sujetador.
 
 **IMPORTANTE**: Los parlantes están dañados y los botones cuesta presionarlos pero la televisión tiene buen tamaño y puede ser usada con parlantes externos sin problema.
 
 ## Televisor LG LCD de 43' 43LK5700PSC: $300
+
+Incluye brazo sujetador.
 
 ## Dos Tanques de gas: $80
 
