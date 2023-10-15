@@ -136,6 +136,18 @@ Entrega inmediata
 
 ![image](https://github.com/rodrigoreyes79/gsale/assets/3924426/0dbdd991-7267-46af-ba67-72386fa525bc)
 
+## Arcoiris Waldorf: $35
+
+![WhatsApp Image 2023-10-14 at 20 31 35](https://github.com/rodrigoreyes79/gsale/assets/3924426/a4e48792-3a4d-406b-9826-730d226629c8)
+![WhatsApp Image 2023-10-14 at 20 29 47](https://github.com/rodrigoreyes79/gsale/assets/3924426/bfb7a334-309b-497a-bca5-30cbdbdb7632)
+![WhatsApp Image 2023-10-14 at 20 29 34](https://github.com/rodrigoreyes79/gsale/assets/3924426/fea7b5f4-07e5-42f0-817c-9576266cad03)
+
+## Bandejas de madera Montessori medidas 30*24*5: $18
+
+Entrega inmediata
+
+![WhatsApp Image 2023-10-14 at 20 34 07](https://github.com/rodrigoreyes79/gsale/assets/3924426/58cd9d83-fc9d-4902-8f8b-667b54e57f81)
+
 ## Televisor Samsung LED de 24' T24E310LB: $60
 
 ## Televisor LG LCD de 42' 42LH20R-MA: $50
