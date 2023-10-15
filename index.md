@@ -150,15 +150,27 @@ Entrega inmediata
 
 ## Guitarra de juguete: $40
 
+Entrega inmediata
+
 ![WhatsApp Image 2023-10-14 at 20 40 19](https://github.com/rodrigoreyes79/gsale/assets/3924426/88b830d3-3a58-4f2d-a535-3de02b93c5cf)
 ![WhatsApp Image 2023-10-14 at 20 42 00](https://github.com/rodrigoreyes79/gsale/assets/3924426/49ab943c-a259-419d-b33e-162be14da773)
 
 ## Magic Forest Puzzle: $12
 
+Entrega inmediata
+
 ![WhatsApp Image 2023-10-14 at 20 46 00](https://github.com/rodrigoreyes79/gsale/assets/3924426/dd404a03-53d1-4032-98bb-8e4a394c31ea)
 ![WhatsApp Image 2023-10-14 at 20 46 39](https://github.com/rodrigoreyes79/gsale/assets/3924426/6232ec98-235e-468c-8c28-ae3748df2665)
 ![WhatsApp Image 2023-10-14 at 20 46 00 (1)](https://github.com/rodrigoreyes79/gsale/assets/3924426/5afd441f-9f37-4662-866a-4ac3fb1d1953)
 
+## Difusor Pebble: $28
+
+Entrega inmediata
+
+![WhatsApp Image 2023-10-14 at 20 54 26](https://github.com/rodrigoreyes79/gsale/assets/3924426/108563dd-e789-44e7-af20-f68986d64adf)
+![WhatsApp Image 2023-10-14 at 20 54 27](https://github.com/rodrigoreyes79/gsale/assets/3924426/b285888a-f195-4a0e-b83f-d4c828410b52)
+![WhatsApp Image 2023-10-14 at 20 54 27 (1)](https://github.com/rodrigoreyes79/gsale/assets/3924426/f8eb0955-a520-49a8-b5aa-01e82cfc3730)
+![WhatsApp Image 2023-10-14 at 20 54 27 (2)](https://github.com/rodrigoreyes79/gsale/assets/3924426/d4eb8d4c-2bf0-46c0-8595-0f8baad3e03c)
 
 ## Televisor Samsung LED de 24' T24E310LB: $60
 
