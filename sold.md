@@ -1,5 +1,18 @@
 # Vendidos
 
+## Cámara vigilancia (sin abrir): $40 - Andreita Eguez
+
+Entrega inmediata
+
+![IMG_20231014_141230](https://github.com/rodrigoreyes79/gsale/assets/3924426/806ef330-ee92-44cc-ba7b-3e8c41c46c85)
+![IMG_20231014_141427](https://github.com/rodrigoreyes79/gsale/assets/3924426/aa59b800-b2be-4fda-b25d-f7402911e895)
+
+## Jarra para extracción de leche vegetal: $10 - Andreita Eguez
+
+Entrega inmediata
+
+![IMG_20231014_152553](https://github.com/rodrigoreyes79/gsale/assets/3924426/cd641696-ad3c-4d75-89fc-0d714567818d)
+
 ## Mesa Plegable 120 x 61 cm: $40 - Juan Pablo Reyes
 
 Entrega inmediata
