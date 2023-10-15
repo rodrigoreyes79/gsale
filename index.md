@@ -142,7 +142,7 @@ Entrega inmediata
 ![WhatsApp Image 2023-10-14 at 20 29 47](https://github.com/rodrigoreyes79/gsale/assets/3924426/bfb7a334-309b-497a-bca5-30cbdbdb7632)
 ![WhatsApp Image 2023-10-14 at 20 29 34](https://github.com/rodrigoreyes79/gsale/assets/3924426/fea7b5f4-07e5-42f0-817c-9576266cad03)
 
-## Bandejas de madera Montessori medidas 30*24*5: $18
+## Bandejas de madera Montessori medidas 30 x 24 x 5: $18
 
 Entrega inmediata
 
