@@ -63,19 +63,6 @@ Entrega inmediata
 
 ![IMG_20231014_131253](https://github.com/rodrigoreyes79/gsale/assets/3924426/d99caa58-8a2f-4d2b-a5cf-b330e3ae09fd)
 
-## Cámara vigilancia (sin abrir): $40
-
-Entrega inmediata
-
-![IMG_20231014_141230](https://github.com/rodrigoreyes79/gsale/assets/3924426/806ef330-ee92-44cc-ba7b-3e8c41c46c85)
-![IMG_20231014_141427](https://github.com/rodrigoreyes79/gsale/assets/3924426/aa59b800-b2be-4fda-b25d-f7402911e895)
-
-## Jarra para extracción de leche vegetal: $10
-
-Entrega inmediata
-
-![IMG_20231014_152553](https://github.com/rodrigoreyes79/gsale/assets/3924426/cd641696-ad3c-4d75-89fc-0d714567818d)
-
 ## Audífonos EarFun® Air True Wireless Earbuds, Bluetooth Earbuds: $20
 
 Entrega inmediata
