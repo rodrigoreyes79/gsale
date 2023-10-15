@@ -82,13 +82,6 @@ Entrega inmediata
 
 ![IMG_20231014_172859](https://github.com/rodrigoreyes79/gsale/assets/3924426/88a69666-6015-442f-98e0-301b51563da3)
 
-## Mesa Plegable 120 x 61 cm: $40
-
-Entrega inmediata
-
-![SCR-20231014-pkws](https://github.com/rodrigoreyes79/gsale/assets/3924426/ad0f4cec-89eb-4d16-aaea-8ffeae8cbb9d)
-![SCR-20231014-pkzw](https://github.com/rodrigoreyes79/gsale/assets/3924426/a84b886b-c14c-4dea-9237-9e3d9be1093d)
-
 ## Mesa pequeña centro de madera: $40
 
 Entrega inmediata. No incluye adornos de la foto.
