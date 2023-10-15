@@ -148,6 +148,12 @@ Entrega inmediata
 
 ![WhatsApp Image 2023-10-14 at 20 34 07](https://github.com/rodrigoreyes79/gsale/assets/3924426/58cd9d83-fc9d-4902-8f8b-667b54e57f81)
 
+## Guitarra de juguete: $40
+
+![WhatsApp Image 2023-10-14 at 20 40 19](https://github.com/rodrigoreyes79/gsale/assets/3924426/88b830d3-3a58-4f2d-a535-3de02b93c5cf)
+![WhatsApp Image 2023-10-14 at 20 42 00](https://github.com/rodrigoreyes79/gsale/assets/3924426/49ab943c-a259-419d-b33e-162be14da773)
+
+
 ## Televisor Samsung LED de 24' T24E310LB: $60
 
 ## Televisor LG LCD de 42' 42LH20R-MA: $50
