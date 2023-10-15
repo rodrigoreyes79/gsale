@@ -112,6 +112,30 @@ Entrega inmediata
 
 ![PXL_20231015_001205338](https://github.com/rodrigoreyes79/gsale/assets/3924426/4681da10-ef28-4329-b75e-b68c92e3b4cf)
 
+## Impresora / Scanner HP Deskjet Ink Advantage 2775: $40
+
+![image](https://github.com/rodrigoreyes79/gsale/assets/3924426/c9486e8b-3b99-4b8a-8872-8a14f020362d)
+
+## Impresora Laser Samsung M2020W: $100
+
+![image](https://github.com/rodrigoreyes79/gsale/assets/3924426/66219480-acd0-4a38-9fd4-402b2b11e56b)
+
+## Teclado Mecánico Wired Durgod K32 TKL: $50
+
+Entrega inmediata
+
+![image](https://github.com/rodrigoreyes79/gsale/assets/3924426/f9b6bd15-1cf4-4386-b437-22cf997a0cd2)
+
+## Audífonos Soundcore Q30: $50
+
+![image](https://github.com/rodrigoreyes79/gsale/assets/3924426/a431666f-3469-4ceb-8be7-e70be3993f17)
+
+## Mouse Logitec Lift: $30
+
+Entrega inmediata
+
+![image](https://github.com/rodrigoreyes79/gsale/assets/3924426/0dbdd991-7267-46af-ba67-72386fa525bc)
+
 ## Televisor Samsung LED de 24' T24E310LB: $60
 
 ## Televisor LG LCD de 42' 42LH20R-MA: $50
@@ -186,27 +210,7 @@ Entrega inmediata
 
 ## Esterilizador: $60
 
-## Teclado Mecánico Wired Durgod: $40
-
-Entrega inmediata
-
-## Teclado Logitec: $30
-
-Entrega inmediata
-
-## Audífonos Soundcore Q30: $50
-
-## Impresora HP Deskjet Ink Advantage: $40
-
-## Impresora Laser Samsung M2020W: $30
-
 ## Hervidor Tekno: $15
-
-## Mouse Logitec Lift: $30
-
-Entrega inmediata
-
-![image](https://github.com/rodrigoreyes79/gsale/assets/3924426/0dbdd991-7267-46af-ba67-72386fa525bc)
 
 
 ---
