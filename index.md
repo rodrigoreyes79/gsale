@@ -153,6 +153,12 @@ Entrega inmediata
 ![WhatsApp Image 2023-10-14 at 20 40 19](https://github.com/rodrigoreyes79/gsale/assets/3924426/88b830d3-3a58-4f2d-a535-3de02b93c5cf)
 ![WhatsApp Image 2023-10-14 at 20 42 00](https://github.com/rodrigoreyes79/gsale/assets/3924426/49ab943c-a259-419d-b33e-162be14da773)
 
+## Magic Forest Puzzle: $12
+
+![WhatsApp Image 2023-10-14 at 20 46 00](https://github.com/rodrigoreyes79/gsale/assets/3924426/dd404a03-53d1-4032-98bb-8e4a394c31ea)
+![WhatsApp Image 2023-10-14 at 20 46 39](https://github.com/rodrigoreyes79/gsale/assets/3924426/6232ec98-235e-468c-8c28-ae3748df2665)
+![WhatsApp Image 2023-10-14 at 20 46 00 (1)](https://github.com/rodrigoreyes79/gsale/assets/3924426/5afd441f-9f37-4662-866a-4ac3fb1d1953)
+
 
 ## Televisor Samsung LED de 24' T24E310LB: $60
 
