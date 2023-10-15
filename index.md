@@ -204,38 +204,6 @@ Entrega inmediata
 
 Entrega inmediata
 
-## Bicicleta Corona: $50
-
-Entrega inmediata
-
-## Bicicleta Mediana Niña: $20
-
-Entrega inmediata
-
-## Bicicleta Mediana Niñ0: $20
-
-Entrega inmediata
-
-## Bicicleta Pequeña Niña: $20
-
-Entrega inmediata
-
-## Casco deportivo Adulto Hombre: $15
-
-Entrega inmediata
-
-## Casco deportivo Niña: $10
-
-Entrega inmediata
-
-## Casco deportivo Niño: $10
-
-Entrega inmediata
-
-## Casco deportivo Niña: $10
-
-Entrega inmediata
-
 ---
 
 # Vendidos
