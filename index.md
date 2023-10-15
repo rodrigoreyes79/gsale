@@ -130,7 +130,7 @@ Entrega inmediata
 
 ![image](https://github.com/rodrigoreyes79/gsale/assets/3924426/a431666f-3469-4ceb-8be7-e70be3993f17)
 
-## Mouse Logitec Lift: $30
+## Mouse Logitec Lift: $60
 
 Entrega inmediata
 
