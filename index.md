@@ -73,12 +73,6 @@ Entrega inmediata
 
 ![IMG_20231014_152553](https://github.com/rodrigoreyes79/gsale/assets/3924426/cd641696-ad3c-4d75-89fc-0d714567818d)
 
-## Soundbar Logitec USB: $15
-
-Entrega inmediata
-
-![IMG_20231014_153043](https://github.com/rodrigoreyes79/gsale/assets/3924426/c16e9979-f196-4df2-ab0f-f7934e3b3db2)
-
 ## Audífonos EarFun® Air True Wireless Earbuds, Bluetooth Earbuds: $20
 
 Entrega inmediata
@@ -117,10 +111,6 @@ Entrega inmediata
 ## Impresora / Scanner HP Deskjet Ink Advantage 2775: $40
 
 ![image](https://github.com/rodrigoreyes79/gsale/assets/3924426/c9486e8b-3b99-4b8a-8872-8a14f020362d)
-
-## Impresora Laser Samsung M2020W: $100
-
-![image](https://github.com/rodrigoreyes79/gsale/assets/3924426/66219480-acd0-4a38-9fd4-402b2b11e56b)
 
 ## Teclado Mecánico Wired Durgod K32 TKL: $50
 
@@ -173,16 +163,6 @@ Entrega inmediata
 ![WhatsApp Image 2023-10-14 at 20 54 27](https://github.com/rodrigoreyes79/gsale/assets/3924426/b285888a-f195-4a0e-b83f-d4c828410b52)
 ![WhatsApp Image 2023-10-14 at 20 54 27 (1)](https://github.com/rodrigoreyes79/gsale/assets/3924426/f8eb0955-a520-49a8-b5aa-01e82cfc3730)
 ![WhatsApp Image 2023-10-14 at 20 54 27 (2)](https://github.com/rodrigoreyes79/gsale/assets/3924426/d4eb8d4c-2bf0-46c0-8595-0f8baad3e03c)
-
-## Televisor Samsung LED de 24' T24E310LB: $60
-
-Incluye brazo sujetador.
-
-## Televisor LG LCD de 42' 42LH20R-MA: $50
-
-Incluye brazo sujetador.
-
-**IMPORTANTE**: Los parlantes están dañados y los botones cuesta presionarlos pero la televisión tiene buen tamaño y puede ser usada con parlantes externos sin problema.
 
 ## Televisor LG LCD de 43' 43LK5700PSC: $300
 
