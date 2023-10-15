@@ -26,6 +26,8 @@ Entrega inmediata
 
 ## Mini componente Sony: $100
 
+Incluye mueble de la foto.
+
 ![IMG_20231014_133852](https://github.com/rodrigoreyes79/gsale/assets/3924426/ccb8e018-f493-45ef-a3f0-5e80ed78cbf5)
 
 ## Lego Minecraft Bee Cottage 254pcs: $28
