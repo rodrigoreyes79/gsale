@@ -228,16 +228,4 @@ Entrega inmediata
 ![IMG_20231014_133756](https://github.com/rodrigoreyes79/gsale/assets/3924426/a8ded512-39e1-49a0-8d19-6b0467b55865)
 Especificación: http://arch.casio-intl.com/latin/es/emi/standard/ctk3200/
 
-## Horno: $280 - Lady
-
-## Calentador Agua: $100 - Lady
-
-## Aire acondicionado Oficina: $300 - Lady
-
-## Aire acondicionado Mati: $250 - Lady
-
-## Aire acondicionado Julieta: $300 - Lady
-
-## Lavavajillas: $60 - Lady 
-
 
