@@ -17,3 +17,23 @@
 ![IMG_20231014_133749](https://github.com/rodrigoreyes79/gsale/assets/3924426/e348ff63-0bf5-4dc0-96b5-1848eda6e384)
 ![IMG_20231014_133756](https://github.com/rodrigoreyes79/gsale/assets/3924426/a8ded512-39e1-49a0-8d19-6b0467b55865)
 Especificación: http://arch.casio-intl.com/latin/es/emi/standard/ctk3200/
+
+## Impresora Laser Samsung M2020W: $100 - Jenny Lee
+
+![image](https://github.com/rodrigoreyes79/gsale/assets/3924426/66219480-acd0-4a38-9fd4-402b2b11e56b)
+
+## Soundbar Logitec USB: $15 - Jenny Lee
+
+Entrega inmediata
+
+![IMG_20231014_153043](https://github.com/rodrigoreyes79/gsale/assets/3924426/c16e9979-f196-4df2-ab0f-f7934e3b3db2)
+
+## Televisor Samsung LED de 24' T24E310LB: $60 - Jenny Lee
+
+Incluye brazo sujetador.
+
+## Televisor LG LCD de 42' 42LH20R-MA: $50 - Jenny Lee
+
+Incluye brazo sujetador.
+
+**IMPORTANTE**: Los parlantes están dañados y los botones cuesta presionarlos pero la televisión tiene buen tamaño y puede ser usada con parlantes externos sin problema.
