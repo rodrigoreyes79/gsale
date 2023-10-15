@@ -1,9 +1,9 @@
 # Garage Sale
 
+Entrega el 15 de Diciembre (a menos que se especifique otra fecha en el item en venta).
+
 * TOC
 {:toc}
-
-Entrega el 15 de Diciembre (a menos que se especifique otra fecha en el item en venta).
 
 ## Mesa Terraza: $350
 
