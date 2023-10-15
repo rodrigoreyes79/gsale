@@ -168,7 +168,7 @@ Entrega inmediata
 
 Incluye brazo sujetador.
 
-## Dos Tanques de gas: $80
+## Dos Tanques de gas: $50
 
 ## Repisas comedor: $50
 
