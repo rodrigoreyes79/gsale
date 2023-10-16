@@ -99,3 +99,12 @@ Incluye brazo sujetador.
 ![image](https://github.com/rodrigoreyes79/gsale/assets/3924426/a431666f-3469-4ceb-8be7-e70be3993f17)
 
 ## Caja transportadora para gatos: $20
+
+---
+
+# Marianita
+
+## Triciclo: $10
+
+## Refrigeradora: $50
+
