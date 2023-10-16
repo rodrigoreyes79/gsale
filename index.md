@@ -5,6 +5,12 @@ Entrega el 15 de Diciembre (a menos que se especifique otra fecha en el item en 
 * TOC
 {:toc}
 
+## Mouse Logitec Lift: ~~$60~~ $50
+
+Entrega inmediata
+
+![image](https://github.com/rodrigoreyes79/gsale/assets/3924426/0dbdd991-7267-46af-ba67-72386fa525bc)
+
 ## Mesa convertible: $50
 
 Entrega inmediata
@@ -111,12 +117,6 @@ Entrega inmediata
 Entrega inmediata
 
 ![image](https://github.com/rodrigoreyes79/gsale/assets/3924426/f9b6bd15-1cf4-4386-b437-22cf997a0cd2)
-
-## Mouse Logitec Lift: $60
-
-Entrega inmediata
-
-![image](https://github.com/rodrigoreyes79/gsale/assets/3924426/0dbdd991-7267-46af-ba67-72386fa525bc)
 
 ## Arcoiris Waldorf: $35
 
