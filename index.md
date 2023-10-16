@@ -5,9 +5,20 @@ Entrega el 15 de Diciembre (a menos que se especifique otra fecha en el item en 
 * TOC
 {:toc}
 
+## Mesa convertible: $50
+
+Entrega inmediata
+
+![WhatsApp Image 2023-10-16 at 11 42 27](https://github.com/rodrigoreyes79/gsale/assets/3924426/d6bf383b-a088-4bb7-ae70-b83ba9f1d8fa)
+![WhatsApp Image 2023-10-16 at 11 42 27 (1)](https://github.com/rodrigoreyes79/gsale/assets/3924426/1a5f8c5e-6077-45f6-b396-1edbca423e60)
+
 ## Mesa Terraza: $350
 
-![WhatsApp Image 2023-10-14 at 17 44 09](https://github.com/rodrigoreyes79/gsale/assets/3924426/3c5ac4ad-f79c-4bc1-a22f-a9a92b97cd29)
+Entrega inmediata
+
+![WhatsApp Image 2023-10-16 at 11 42 26](https://github.com/rodrigoreyes79/gsale/assets/3924426/68c3e67e-86f0-4802-9ada-08fa9326a8ff)
+![WhatsApp Image 2023-10-16 at 11 42 26 (1)](https://github.com/rodrigoreyes79/gsale/assets/3924426/9d5bbb01-16d0-4769-baea-096f50f081e4)
+![WhatsApp Image 2023-10-16 at 11 42 26 (2)](https://github.com/rodrigoreyes79/gsale/assets/3924426/96498f26-5977-42de-8beb-50c271143d8f)
 
 ## Coffee Bar: $250
 
@@ -166,10 +177,6 @@ Incluye brazo sujetador.
 ## Sofa café oscuro: $100
 
 ## Repisa libros: $250
-
-## Mesa convertible: $50
-
-Entrega inmediata
 
 ## Parrilla: $40
 
