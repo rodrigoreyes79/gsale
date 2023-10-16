@@ -101,10 +101,6 @@ Entrega inmediata
 
 ![image](https://github.com/rodrigoreyes79/gsale/assets/3924426/f9b6bd15-1cf4-4386-b437-22cf997a0cd2)
 
-## Audífonos Soundcore Q30: $50
-
-![image](https://github.com/rodrigoreyes79/gsale/assets/3924426/a431666f-3469-4ceb-8be7-e70be3993f17)
-
 ## Mouse Logitec Lift: $60
 
 Entrega inmediata
