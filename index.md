@@ -5,6 +5,11 @@ Entrega el 15 de Diciembre (a menos que se especifique otra fecha en el item en 
 * TOC
 {:toc}
 
+## Adaptador de escritorio a Standing Desk: $80
+
+![image](https://github.com/rodrigoreyes79/gsale/assets/3924426/8ca198c7-522e-473e-81f9-008069e4fe2c)
+![IMG_20231016_072742](https://github.com/rodrigoreyes79/gsale/assets/3924426/31dfb327-d898-42e8-aab8-ef41ccf2aa0a)
+
 ## Mesa Terraza: $350
 
 ![WhatsApp Image 2023-10-14 at 17 44 09](https://github.com/rodrigoreyes79/gsale/assets/3924426/3c5ac4ad-f79c-4bc1-a22f-a9a92b97cd29)
