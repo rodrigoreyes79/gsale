@@ -20,7 +20,7 @@ No incluye cafetera, molino o el resto de los utensilios que aparecen en la foto
 
 ![WhatsApp Image 2023-10-14 at 13 32 19](https://github.com/rodrigoreyes79/gsale/assets/3924426/f6a0b28f-67bb-4360-9e92-e8f6010bc51a)
 
-## Mueble cajones: $120
+## Mueble cajones 47 x 172 x 45 cm: $120
 
 Entrega inmediata
 
@@ -194,7 +194,13 @@ Entrega inmediata
 
 Entrega inmediata
 
-## Cajoneras oficina: $40
+## Cajoneras oficina 47 x 84 x 80 cm: $40
+
+Entrega inmediata
+
+![WhatsApp Image 2023-10-18 at 09 29 52](https://github.com/rodrigoreyes79/gsale/assets/3924426/0695a91a-2feb-48cb-bd41-a86e5c3b31f9)
+![WhatsApp Image 2023-10-18 at 09 29 52 (1)](https://github.com/rodrigoreyes79/gsale/assets/3924426/1287e16d-869d-4825-b320-11f753c53e80)
+
 
 ## Respaldar cama: $80
 
