@@ -236,8 +236,6 @@ Entrega inmediata
 
 ## Olla arrocera eléctrica: $20
 
-## Congelador: $100
-
 ## Pizarra de marcadores: $20
 
 Entrega inmediata
