@@ -212,17 +212,11 @@ Incluye brazo sujetador.
 
 ## Sofa café oscuro: $100
 
-## Parrilla: $40
-
-Entrega inmediata
-
 ## Mesa pequeña redonda con sillas: $40
 
 Entrega inmediata
 
 ## Respaldar cama: $80
-
-## Colchón cama papás: $50
 
 ## Sillón cuarto papás: $180
 
