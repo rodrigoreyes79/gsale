@@ -5,6 +5,19 @@ Entrega el 15 de Diciembre (a menos que se especifique otra fecha en el item en 
 * TOC
 {:toc}
 
+## Repisa libros - 29 x 114 (alto máximo) 188 (alto mínimo) x 200 ancho: $180
+
+![WhatsApp Image 2023-10-18 at 09 48 23](https://github.com/rodrigoreyes79/gsale/assets/3924426/560ad045-9351-4323-bcd3-d2e743a17bc3)
+![WhatsApp Image 2023-10-18 at 09 48 24](https://github.com/rodrigoreyes79/gsale/assets/3924426/160c3120-20d2-43f7-8f31-23d819820b80)
+![WhatsApp Image 2023-10-18 at 09 48 24 (1)](https://github.com/rodrigoreyes79/gsale/assets/3924426/18b2ef11-d8b2-4f6f-bd8f-da0179fa9c38)
+
+## Cajoneras oficina 47 x 84 x 80 cm: $40
+
+Entrega inmediata
+
+![WhatsApp Image 2023-10-18 at 09 29 52](https://github.com/rodrigoreyes79/gsale/assets/3924426/0695a91a-2feb-48cb-bd41-a86e5c3b31f9)
+![WhatsApp Image 2023-10-18 at 09 29 52 (1)](https://github.com/rodrigoreyes79/gsale/assets/3924426/1287e16d-869d-4825-b320-11f753c53e80)
+
 ## Mesa convertible: ~~$50~~ $40
 
 Entrega inmediata
@@ -184,8 +197,6 @@ Incluye brazo sujetador.
 
 ## Sofa café oscuro: $100
 
-## Repisa libros: $250
-
 ## Parrilla: $40
 
 Entrega inmediata
@@ -193,14 +204,6 @@ Entrega inmediata
 ## Mesa pequeña redonda con sillas: $40
 
 Entrega inmediata
-
-## Cajoneras oficina 47 x 84 x 80 cm: $40
-
-Entrega inmediata
-
-![WhatsApp Image 2023-10-18 at 09 29 52](https://github.com/rodrigoreyes79/gsale/assets/3924426/0695a91a-2feb-48cb-bd41-a86e5c3b31f9)
-![WhatsApp Image 2023-10-18 at 09 29 52 (1)](https://github.com/rodrigoreyes79/gsale/assets/3924426/1287e16d-869d-4825-b320-11f753c53e80)
-
 
 ## Respaldar cama: $80
 
