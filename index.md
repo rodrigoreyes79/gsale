@@ -5,6 +5,21 @@ Entrega el 15 de Diciembre (a menos que se especifique otra fecha en el item en 
 * TOC
 {:toc}
 
+## Mesa de madera 79 x 79 x 73 cm: $50
+
+Entrega inmediata
+
+![WhatsApp Image 2023-10-18 at 10 09 05](https://github.com/rodrigoreyes79/gsale/assets/3924426/390c8e8a-6b32-4594-a59e-d418e46d0278)
+![WhatsApp Image 2023-10-18 at 10 09 05 (1)](https://github.com/rodrigoreyes79/gsale/assets/3924426/d058692a-3c86-4efa-87a5-2c1b6bd14a58)
+
+
+## Mueble cajonera 84 x 59 x 89: $60
+
+Entrega inmediata
+
+![WhatsApp Image 2023-10-18 at 10 01 24](https://github.com/rodrigoreyes79/gsale/assets/3924426/e6cf00f1-18cf-43c3-982d-a50f335fd102)
+![WhatsApp Image 2023-10-18 at 10 01 24 (1)](https://github.com/rodrigoreyes79/gsale/assets/3924426/3e3c227c-d882-429a-89fb-47028284244b)
+
 ## Repisa libros - 29 x 114 (alto máximo) 188 (alto mínimo) x 200 ancho: $180
 
 ![WhatsApp Image 2023-10-18 at 09 48 23](https://github.com/rodrigoreyes79/gsale/assets/3924426/560ad045-9351-4323-bcd3-d2e743a17bc3)
