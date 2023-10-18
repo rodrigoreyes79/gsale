@@ -94,10 +94,6 @@ Incluye brazo sujetador.
 
 ## Bicicleta Corona: $50
 
-## Audífonos Soundcore Q30: $50
-
-![image](https://github.com/rodrigoreyes79/gsale/assets/3924426/a431666f-3469-4ceb-8be7-e70be3993f17)
-
 ## Caja transportadora para gatos: $20
 
 ---
@@ -107,4 +103,10 @@ Incluye brazo sujetador.
 ## Triciclo: $10
 
 ## Refrigeradora: $50
+
+## Colchón cama papás: $50
+
+## Parrilla: $40
+
+Entrega inmediata
 
