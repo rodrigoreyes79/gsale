@@ -115,3 +115,25 @@ Entrega inmediata
 # Alexandra
 
 ## Congelador: $100
+
+## Lavadora: $120
+
+## Impresora / Scanner HP Deskjet Ink Advantage 2775: $40
+
+![image](https://github.com/rodrigoreyes79/gsale/assets/3924426/c9486e8b-3b99-4b8a-8872-8a14f020362d)
+
+## Mesa convertible: ~~$50~~ $40
+
+Entrega inmediata
+
+![WhatsApp Image 2023-10-16 at 11 42 27](https://github.com/rodrigoreyes79/gsale/assets/3924426/d6bf383b-a088-4bb7-ae70-b83ba9f1d8fa)
+![WhatsApp Image 2023-10-16 at 11 42 27 (1)](https://github.com/rodrigoreyes79/gsale/assets/3924426/1a5f8c5e-6077-45f6-b396-1edbca423e60)
+
+## Cámara Canon Powershot SX10IS: $40
+
+Entrega inmediata
+
+![IMG_20231014_142445](https://github.com/rodrigoreyes79/gsale/assets/3924426/78c49de2-282f-45e0-af66-3a2b83c59af0)
+![IMG_20231014_142502](https://github.com/rodrigoreyes79/gsale/assets/3924426/2e2afa12-7858-4bb2-a623-49ed9bc85add)
+![IMG_20231014_142454](https://github.com/rodrigoreyes79/gsale/assets/3924426/f0865895-e517-4584-a9ad-125f58cad955)
+
