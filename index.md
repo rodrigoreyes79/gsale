@@ -5,6 +5,12 @@ Entrega el 15 de Diciembre (a menos que se especifique otra fecha en el item en 
 * TOC
 {:toc}
 
+## Tablet Galaxy Tab A SMT-510: $100
+
+![image](https://github.com/rodrigoreyes79/gsale/assets/3924426/24c97dae-6caf-4fcb-a864-8fde2248fa6b)
+![IMG_20231019_084556](https://github.com/rodrigoreyes79/gsale/assets/3924426/661dd744-7987-471d-be59-b0109d8db899)
+
+
 ## Mesa de madera 79 x 79 x 73 cm: $50
 
 Entrega inmediata
