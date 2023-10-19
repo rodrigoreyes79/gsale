@@ -96,6 +96,18 @@ Incluye brazo sujetador.
 
 ## Caja transportadora para gatos: $20
 
+## Mini componente Sony: $100
+
+Incluye mueble de la foto.
+
+![IMG_20231014_133852](https://github.com/rodrigoreyes79/gsale/assets/3924426/ccb8e018-f493-45ef-a3f0-5e80ed78cbf5)
+
+## Audífonos EarFun® Air True Wireless Earbuds, Bluetooth Earbuds: $20
+
+Entrega inmediata
+
+![IMG_20231014_172859](https://github.com/rodrigoreyes79/gsale/assets/3924426/88a69666-6015-442f-98e0-301b51563da3)
+
 ---
 
 # Marianita
