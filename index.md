@@ -39,13 +39,6 @@ Entrega inmediata
 ![WhatsApp Image 2023-10-18 at 09 29 52](https://github.com/rodrigoreyes79/gsale/assets/3924426/0695a91a-2feb-48cb-bd41-a86e5c3b31f9)
 ![WhatsApp Image 2023-10-18 at 09 29 52 (1)](https://github.com/rodrigoreyes79/gsale/assets/3924426/1287e16d-869d-4825-b320-11f753c53e80)
 
-## Mesa convertible: ~~$50~~ $40
-
-Entrega inmediata
-
-![WhatsApp Image 2023-10-16 at 11 42 27](https://github.com/rodrigoreyes79/gsale/assets/3924426/d6bf383b-a088-4bb7-ae70-b83ba9f1d8fa)
-![WhatsApp Image 2023-10-16 at 11 42 27 (1)](https://github.com/rodrigoreyes79/gsale/assets/3924426/1a5f8c5e-6077-45f6-b396-1edbca423e60)
-
 ## Coffee Bar: ~~$250~~ $180
 
 No incluye cafetera, molino o el resto de los utensilios que aparecen en la foto.
@@ -138,21 +131,9 @@ Entrega inmediata. No incluye adornos de la foto.
 
 ![IMG_20231014_180314](https://github.com/rodrigoreyes79/gsale/assets/3924426/afdc441b-58b0-40a3-b246-71dff11c0e92)
 
-## Cámara Canon Powershot SX10IS: $40
-
-Entrega inmediata
-
-![IMG_20231014_142445](https://github.com/rodrigoreyes79/gsale/assets/3924426/78c49de2-282f-45e0-af66-3a2b83c59af0)
-![IMG_20231014_142502](https://github.com/rodrigoreyes79/gsale/assets/3924426/2e2afa12-7858-4bb2-a623-49ed9bc85add)
-![IMG_20231014_142454](https://github.com/rodrigoreyes79/gsale/assets/3924426/f0865895-e517-4584-a9ad-125f58cad955)
-
 ## Nebulizador Pediátrico: $40
 
 ![PXL_20231015_001205338](https://github.com/rodrigoreyes79/gsale/assets/3924426/4681da10-ef28-4329-b75e-b68c92e3b4cf)
-
-## Impresora / Scanner HP Deskjet Ink Advantage 2775: $40
-
-![image](https://github.com/rodrigoreyes79/gsale/assets/3924426/c9486e8b-3b99-4b8a-8872-8a14f020362d)
 
 ## Teclado Mecánico Wired Durgod K32 TKL: $50
 
@@ -212,21 +193,19 @@ Incluye brazo sujetador.
 
 ## Repisas comedor: $50
 
-## Mesa de comedor: $400
+##  de comedor: $400
 
 ## Sofa gris: $380
 
 ## Sofa café oscuro: $100
 
-## Mesa pequeña redonda con sillas: $40
+##  pequeña redonda con sillas: $40
 
 Entrega inmediata
 
 ## Respaldar cama: $80
 
 ## Sillón cuarto papás: $180
-
-## Lavadora: $120
 
 ## Mueble de madera con cajón: $30
 
