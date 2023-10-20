@@ -231,6 +231,6 @@ Entrega inmediata
 
 ## Microondas Indurama: $100
 
-## Esterilizador: $60
+## Esterilizador: $40
 
 ## Hervidor Tekno: $15
