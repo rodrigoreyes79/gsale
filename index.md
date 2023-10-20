@@ -5,6 +5,10 @@ Entrega el 15 de Diciembre (a menos que se especifique otra fecha en el item en 
 * TOC
 {:toc}
 
+## Auto Skoda Rapid Spaceback 2018 - 68.000 km: $12.000
+
+![WhatsApp Image 2023-10-19 at 16 42 36](https://github.com/rodrigoreyes79/gsale/assets/3924426/041cea2f-56eb-4db7-8628-fccf9dc8aede)
+
 ## Tablet Galaxy Tab A SMT-510: $100
 
 ![image](https://github.com/rodrigoreyes79/gsale/assets/3924426/24c97dae-6caf-4fcb-a864-8fde2248fa6b)
