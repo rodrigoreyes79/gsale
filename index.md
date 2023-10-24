@@ -9,6 +9,11 @@ Entrega el 15 de Diciembre (a menos que se especifique otra fecha en el item en 
 
 ![WhatsApp Image 2023-10-19 at 16 42 36](https://github.com/rodrigoreyes79/gsale/assets/3924426/041cea2f-56eb-4db7-8628-fccf9dc8aede)
 
+## Adaptador de escritorio a Standing Desk: $80
+
+![image](https://github.com/rodrigoreyes79/gsale/assets/3924426/8ca198c7-522e-473e-81f9-008069e4fe2c)
+![IMG_20231016_072742](https://github.com/rodrigoreyes79/gsale/assets/3924426/31dfb327-d898-42e8-aab8-ef41ccf2aa0a)
+
 ## Tablet Galaxy Tab A SMT-510: $100
 
 ![image](https://github.com/rodrigoreyes79/gsale/assets/3924426/24c97dae-6caf-4fcb-a864-8fde2248fa6b)
@@ -35,13 +40,6 @@ Entrega inmediata
 ![WhatsApp Image 2023-10-18 at 09 48 23](https://github.com/rodrigoreyes79/gsale/assets/3924426/560ad045-9351-4323-bcd3-d2e743a17bc3)
 ![WhatsApp Image 2023-10-18 at 09 48 24](https://github.com/rodrigoreyes79/gsale/assets/3924426/160c3120-20d2-43f7-8f31-23d819820b80)
 ![WhatsApp Image 2023-10-18 at 09 48 24 (1)](https://github.com/rodrigoreyes79/gsale/assets/3924426/18b2ef11-d8b2-4f6f-bd8f-da0179fa9c38)
-
-## Cajoneras oficina 47 x 84 x 80 cm: $40
-
-Entrega inmediata
-
-![WhatsApp Image 2023-10-18 at 09 29 52](https://github.com/rodrigoreyes79/gsale/assets/3924426/0695a91a-2feb-48cb-bd41-a86e5c3b31f9)
-![WhatsApp Image 2023-10-18 at 09 29 52 (1)](https://github.com/rodrigoreyes79/gsale/assets/3924426/1287e16d-869d-4825-b320-11f753c53e80)
 
 ## Coffee Bar: ~~$250~~ $180
 
@@ -83,12 +81,6 @@ Entrega inmediata
 
 ![WhatsApp Image 2023-10-14 at 13 40 17](https://github.com/rodrigoreyes79/gsale/assets/3924426/2c71a24c-68af-47af-bb16-dbc816fe9c40)
 
-## Mini componente Sony: $100
-
-Incluye mueble de la foto.
-
-![IMG_20231014_133852](https://github.com/rodrigoreyes79/gsale/assets/3924426/ccb8e018-f493-45ef-a3f0-5e80ed78cbf5)
-
 ## Lego Minecraft Bee Cottage 254pcs: $28
 
 Entrega inmediata
@@ -119,11 +111,6 @@ Entrega inmediata
 
 ![IMG_20231014_131253](https://github.com/rodrigoreyes79/gsale/assets/3924426/d99caa58-8a2f-4d2b-a5cf-b330e3ae09fd)
 
-## Audífonos EarFun® Air True Wireless Earbuds, Bluetooth Earbuds: $20
-
-Entrega inmediata
-
-![IMG_20231014_172859](https://github.com/rodrigoreyes79/gsale/assets/3924426/88a69666-6015-442f-98e0-301b51563da3)
 
 ## Mesa pequeña centro de madera: $40
 
