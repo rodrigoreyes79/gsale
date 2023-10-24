@@ -5,11 +5,6 @@
 
 # Pocho Balladares
 
-## Adaptador de escritorio a Standing Desk: $80
-
-![image](https://github.com/rodrigoreyes79/gsale/assets/3924426/8ca198c7-522e-473e-81f9-008069e4fe2c)
-![IMG_20231016_072742](https://github.com/rodrigoreyes79/gsale/assets/3924426/31dfb327-d898-42e8-aab8-ef41ccf2aa0a)
-
 ## Dos Tanques de gas: $50
 
 ## Barra ejercicios: $50
@@ -28,8 +23,6 @@ Entrega inmediata
 
 ![IMG_20231014_141230](https://github.com/rodrigoreyes79/gsale/assets/3924426/806ef330-ee92-44cc-ba7b-3e8c41c46c85)
 ![IMG_20231014_141427](https://github.com/rodrigoreyes79/gsale/assets/3924426/aa59b800-b2be-4fda-b25d-f7402911e895)
-
-## Jarra para extracción de leche vegetal: $10
 
 ## Televisor Samsung LED de 32' UN32FH4005H: $60
 
@@ -149,3 +142,15 @@ Entrega inmediata
 ![IMG_20231014_142502](https://github.com/rodrigoreyes79/gsale/assets/3924426/2e2afa12-7858-4bb2-a623-49ed9bc85add)
 ![IMG_20231014_142454](https://github.com/rodrigoreyes79/gsale/assets/3924426/f0865895-e517-4584-a9ad-125f58cad955)
 
+---
+
+# Génesis Casanova
+
+## Cajoneras oficina 47 x 84 x 80 cm: $40
+
+Entrega inmediata
+
+![WhatsApp Image 2023-10-18 at 09 29 52](https://github.com/rodrigoreyes79/gsale/assets/3924426/0695a91a-2feb-48cb-bd41-a86e5c3b31f9)
+![WhatsApp Image 2023-10-18 at 09 29 52 (1)](https://github.com/rodrigoreyes79/gsale/assets/3924426/1287e16d-869d-4825-b320-11f753c53e80)
+
+## Jarra para extracción de leche vegetal: $10
