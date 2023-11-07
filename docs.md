@@ -63,11 +63,38 @@
 # Certificado de Matrimonio Chileno
 
 ![WhatsApp Image 2023-11-06 at 20 21 09](https://github.com/rodrigoreyes79/gsale/assets/3924426/a4cc227a-3b55-497d-927a-3300fa40c26f)
+![WhatsApp Image 2023-11-06 at 20 37 06](https://github.com/rodrigoreyes79/gsale/assets/3924426/c01f1672-b04c-41f4-9040-3a8c5197a7a6)
 
 # Certificado de Nacimiento Hijos
 
 ![WhatsApp Image 2023-11-06 at 20 19 45](https://github.com/rodrigoreyes79/gsale/assets/3924426/a98fd779-90a5-4b0e-91ba-8ec12ff60e00)
 ![WhatsApp Image 2023-11-06 at 20 20 11](https://github.com/rodrigoreyes79/gsale/assets/3924426/956c201b-a5e7-4625-80b5-9204479089c6)
 ![WhatsApp Image 2023-11-06 at 20 20 33](https://github.com/rodrigoreyes79/gsale/assets/3924426/7c253a7e-2663-4a00-8711-dae1e3693eee)
+
+# Reserva vuelo Rodrigo Reyes
+
+![WhatsApp Image 2023-11-06 at 20 22 59](https://github.com/rodrigoreyes79/gsale/assets/3924426/cf93e6b8-5b6e-427a-b5b0-27b8fff039ba)
+
+# Contrato de Trabajo Rodrigo Reyes
+
+![WhatsApp Image 2023-11-06 at 20 21 34](https://github.com/rodrigoreyes79/gsale/assets/3924426/729db468-81b9-41f0-8bea-1fa483c2319d)
+
+# Ingresos mensuales del último año Rodrigo Reyes
+
+![WhatsApp Image 2023-11-06 at 20 22 06](https://github.com/rodrigoreyes79/gsale/assets/3924426/5f76594d-5d4f-4eca-97d0-a20a098d3d70)
+
+# Certificado Bancario Cuenta de Ahorros
+
+![WhatsApp Image 2023-11-06 at 20 22 35](https://github.com/rodrigoreyes79/gsale/assets/3924426/28cf4d33-40d0-4259-bbb5-511c1913428b)
+
+# Pasaporte italianos hijos
+
+![WhatsApp Image 2023-11-06 at 20 23 36](https://github.com/rodrigoreyes79/gsale/assets/3924426/e2dd566b-4186-476b-b917-844fdd052aac)
+![WhatsApp Image 2023-11-06 at 20 24 37](https://github.com/rodrigoreyes79/gsale/assets/3924426/706fae3d-92a1-417c-a9e8-6a242c2371f7)
+![WhatsApp Image 2023-11-06 at 20 25 14](https://github.com/rodrigoreyes79/gsale/assets/3924426/ba8549d3-6709-4b1e-9e51-046895fb6fb8)
+
+
+
+
 
 
