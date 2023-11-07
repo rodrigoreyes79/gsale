@@ -63,4 +63,10 @@
 ![WhatsApp Image 2023-11-06 at 20 20 11](https://github.com/rodrigoreyes79/gsale/assets/3924426/956c201b-a5e7-4625-80b5-9204479089c6)
 ![WhatsApp Image 2023-11-06 at 20 20 33](https://github.com/rodrigoreyes79/gsale/assets/3924426/7c253a7e-2663-4a00-8711-dae1e3693eee)
 
+# Carta de Manifestación Notarizada y Apostillada
+
+![WhatsApp Image 2023-11-06 at 20 30 59](https://github.com/rodrigoreyes79/gsale/assets/3924426/25d1b028-9339-4751-ac62-3648314cf911)
+![WhatsApp Image 2023-11-06 at 20 31 24](https://github.com/rodrigoreyes79/gsale/assets/3924426/cbb34a1d-3abd-46ff-8efe-c84f43ac656e)
+![WhatsApp Image 2023-11-06 at 20 31 53](https://github.com/rodrigoreyes79/gsale/assets/3924426/ab9c0d02-558c-4e18-9205-180c2e24f7f2)
+![WhatsApp Image 2023-11-06 at 20 32 23](https://github.com/rodrigoreyes79/gsale/assets/3924426/cc7c29c0-f2ba-4df0-a982-d7be639c1594)
 
