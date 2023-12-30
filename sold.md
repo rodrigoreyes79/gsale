@@ -154,3 +154,22 @@ Entrega inmediata
 ![WhatsApp Image 2023-10-18 at 09 29 52 (1)](https://github.com/rodrigoreyes79/gsale/assets/3924426/1287e16d-869d-4825-b320-11f753c53e80)
 
 ## Jarra para extracción de leche vegetal: $10
+
+---
+
+# Poppers
+
+## Auto Skoda Rapid Spaceback 2018 - 68.000 km: $12.000
+
+![WhatsApp Image 2023-10-19 at 16 42 36](https://github.com/rodrigoreyes79/gsale/assets/3924426/041cea2f-56eb-4db7-8628-fccf9dc8aede)
+
+
+---
+
+# Steven Espinoza
+
+## Coffee Bar: ~~$250~~ $180
+
+No incluye cafetera, molino o el resto de los utensilios que aparecen en la foto.
+
+![IMG_20231014_133145 (1)](https://github.com/rodrigoreyes79/gsale/assets/3924426/6cec102f-9f9f-4171-adab-6f13b59a8f52)
