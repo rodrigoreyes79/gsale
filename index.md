@@ -5,16 +5,12 @@ Entrega el 15 de Diciembre (a menos que se especifique otra fecha en el item en 
 * TOC
 {:toc}
 
-## Auto Skoda Rapid Spaceback 2018 - 68.000 km: $12.000
-
-![WhatsApp Image 2023-10-19 at 16 42 36](https://github.com/rodrigoreyes79/gsale/assets/3924426/041cea2f-56eb-4db7-8628-fccf9dc8aede)
-
-## Adaptador de escritorio a Standing Desk: $80
+## Adaptador de escritorio a Standing Desk: $40
 
 ![image](https://github.com/rodrigoreyes79/gsale/assets/3924426/8ca198c7-522e-473e-81f9-008069e4fe2c)
 ![IMG_20231016_072742](https://github.com/rodrigoreyes79/gsale/assets/3924426/31dfb327-d898-42e8-aab8-ef41ccf2aa0a)
 
-## Tablet Galaxy Tab A SMT-510: $100
+## Tablet Galaxy Tab A SMT-510: $80 ~~$100~~
 
 ![image](https://github.com/rodrigoreyes79/gsale/assets/3924426/24c97dae-6caf-4fcb-a864-8fde2248fa6b)
 ![IMG_20231019_084556](https://github.com/rodrigoreyes79/gsale/assets/3924426/661dd744-7987-471d-be59-b0109d8db899)
@@ -35,21 +31,15 @@ Entrega inmediata
 ![WhatsApp Image 2023-10-18 at 10 01 24](https://github.com/rodrigoreyes79/gsale/assets/3924426/e6cf00f1-18cf-43c3-982d-a50f335fd102)
 ![WhatsApp Image 2023-10-18 at 10 01 24 (1)](https://github.com/rodrigoreyes79/gsale/assets/3924426/3e3c227c-d882-429a-89fb-47028284244b)
 
-## Repisa libros - 29 x 114 (alto máximo) 188 (alto mínimo) x 200 ancho: $180
+## Repisa libros - 29 x 114 (alto máximo) 188 (alto mínimo) x 200 ancho: $120 ~~$180~~
 
 ![WhatsApp Image 2023-10-18 at 09 48 23](https://github.com/rodrigoreyes79/gsale/assets/3924426/560ad045-9351-4323-bcd3-d2e743a17bc3)
 ![WhatsApp Image 2023-10-18 at 09 48 24](https://github.com/rodrigoreyes79/gsale/assets/3924426/160c3120-20d2-43f7-8f31-23d819820b80)
 ![WhatsApp Image 2023-10-18 at 09 48 24 (1)](https://github.com/rodrigoreyes79/gsale/assets/3924426/18b2ef11-d8b2-4f6f-bd8f-da0179fa9c38)
 
-## Coffee Bar: ~~$250~~ $180
-
-No incluye cafetera, molino o el resto de los utensilios que aparecen en la foto.
-
-![IMG_20231014_133145 (1)](https://github.com/rodrigoreyes79/gsale/assets/3924426/6cec102f-9f9f-4171-adab-6f13b59a8f52)
-
 ![WhatsApp Image 2023-10-14 at 13 32 19](https://github.com/rodrigoreyes79/gsale/assets/3924426/f6a0b28f-67bb-4360-9e92-e8f6010bc51a)
 
-## Mueble cajones 47 x 172 x 45 cm: $120
+## Mueble cajones 47 x 172 x 45 cm: $100 ~~$120~~
 
 Entrega inmediata
 
@@ -57,7 +47,7 @@ Entrega inmediata
 ![WhatsApp Image 2023-10-16 at 12 01 00](https://github.com/rodrigoreyes79/gsale/assets/3924426/b0d3fbfa-5ba0-4c59-ac58-050e8294a384)
 ![WhatsApp Image 2023-10-16 at 12 01 11](https://github.com/rodrigoreyes79/gsale/assets/3924426/6701ae4c-3867-4979-bf9f-b23e39c70160)
 
-## Mouse Logitec Lift: ~~$60~~ $50
+## Mouse Logitec Lift: $30 ~~$60~~
 
 Entrega inmediata
 
@@ -75,23 +65,9 @@ Entrega inmediata
 
 ![IMG_20231014_133813](https://github.com/rodrigoreyes79/gsale/assets/3924426/4cb7eab8-39d6-4e4d-adc1-7097d12345a4)
 
-## Alfombra rosa: $40
-
-Entrega inmediata
-
-![WhatsApp Image 2023-10-14 at 13 40 17](https://github.com/rodrigoreyes79/gsale/assets/3924426/2c71a24c-68af-47af-bb16-dbc816fe9c40)
-
-## Lego Minecraft Bee Cottage 254pcs: $28
-
-Entrega inmediata
-
-![IMG_20231014_131227](https://github.com/rodrigoreyes79/gsale/assets/3924426/3ae6042b-8e86-40dc-b08e-3be61e3ff6fb)
-
 ## Lego Minecraft The Fox Lodge 193pcs: $26
 
 Entrega inmediata
-
-![IMG_20231014_131227](https://github.com/rodrigoreyes79/gsale/assets/3924426/f61bcd4b-a666-4e45-9660-b80879dbff25)
 
 ## Lego Minecraft The Coral Reef 92pcs: $14
 
@@ -99,34 +75,29 @@ Entrega inmediata
 
 ![IMG_20231014_131206](https://github.com/rodrigoreyes79/gsale/assets/3924426/1be1e625-905d-4d52-a5ad-59a6bec4f770)
 
-## Lego Minecraft The swamp Adventura 65pcs: $12
-
-Entrega inmediata
-
-![IMG_20231014_131216](https://github.com/rodrigoreyes79/gsale/assets/3924426/7c2ac6a8-aa1d-4ac9-bd95-2df8dacaec00)
-
 ## Lego Minecraft The Abandoned Mine 248pcs: $27
 
 Entrega inmediata
 
 ![IMG_20231014_131253](https://github.com/rodrigoreyes79/gsale/assets/3924426/d99caa58-8a2f-4d2b-a5cf-b330e3ae09fd)
 
-
-## Mesa pequeña centro de madera: $40
+## Mesa pequeña centro de madera: $30 ~~$40~~
 
 Entrega inmediata. No incluye adornos de la foto.
 
 ![WhatsApp Image 2023-10-14 at 17 34 29](https://github.com/rodrigoreyes79/gsale/assets/3924426/6aa038a6-b35d-47c4-a877-b0ff0e2eec2b)
 
-## Purificador de Aire Coway Airmega AP-1512HH: $150
+## Purificador de Aire Coway Airmega AP-1512HH: $100 ~~$150~~
+
+Excelente purificar el aire para las personas que tienen alergias.
 
 ![IMG_20231014_180314](https://github.com/rodrigoreyes79/gsale/assets/3924426/afdc441b-58b0-40a3-b246-71dff11c0e92)
 
-## Nebulizador Pediátrico: $40
+## Nebulizador Pediátrico: $20 ~~$40~~
 
 ![PXL_20231015_001205338](https://github.com/rodrigoreyes79/gsale/assets/3924426/4681da10-ef28-4329-b75e-b68c92e3b4cf)
 
-## Teclado Mecánico Wired Durgod K32 TKL: $50
+## Teclado Mecánico Wired Durgod K32 TKL: $40 ~~$50~~
 
 Entrega inmediata
 
@@ -159,15 +130,6 @@ Entrega inmediata
 ![WhatsApp Image 2023-10-14 at 20 46 39](https://github.com/rodrigoreyes79/gsale/assets/3924426/6232ec98-235e-468c-8c28-ae3748df2665)
 ![WhatsApp Image 2023-10-14 at 20 46 00 (1)](https://github.com/rodrigoreyes79/gsale/assets/3924426/5afd441f-9f37-4662-866a-4ac3fb1d1953)
 
-## Difusor Pebble: $28
-
-Entrega inmediata
-
-![WhatsApp Image 2023-10-14 at 20 54 26](https://github.com/rodrigoreyes79/gsale/assets/3924426/108563dd-e789-44e7-af20-f68986d64adf)
-![WhatsApp Image 2023-10-14 at 20 54 27](https://github.com/rodrigoreyes79/gsale/assets/3924426/b285888a-f195-4a0e-b83f-d4c828410b52)
-![WhatsApp Image 2023-10-14 at 20 54 27 (1)](https://github.com/rodrigoreyes79/gsale/assets/3924426/f8eb0955-a520-49a8-b5aa-01e82cfc3730)
-![WhatsApp Image 2023-10-14 at 20 54 27 (2)](https://github.com/rodrigoreyes79/gsale/assets/3924426/d4eb8d4c-2bf0-46c0-8595-0f8baad3e03c)
-
 ## Casa de juguete de Gaby: $40
 
 Entrega inmediata
@@ -180,35 +142,31 @@ Entrega inmediata
 
 ## Televisor LG LCD de 43' 43LK5700PSC: $300
 
-Incluye brazo sujetador.
-
 ## Repisas comedor: $50
 
-##  de comedor: $400
+## Mesa de comedor: $400
 
-## Sofa gris: $380
+## Sofa gris: $280 ~~$380~~
 
-## Sofa café oscuro: $100
+## Sofa café oscuro marca Colineal (necesita retapizada): $100
 
-##  pequeña redonda con sillas: $40
+## Mesa pequeña infantil redonda con sillas: $40
 
 Entrega inmediata
 
-## Respaldar cama: $80
+## Respaldar cama con cajones: $80
 
-## Sillón cuarto papás: $180
+## Sillón cuarto papás: $120 ~~$180~~
 
 ## Mueble de madera con cajón: $30
 
 Entrega inmediata
 
-## Purificador de agua: $200
+## Purificador de agua: $100 ~~$200~~
 
 ## Repisa con ruedas: $50
 
-## Ozonificador de agua: 
-
-## Licuadora: $70
+## Licuadora de alta potencia: $40
 
 ## Olla arrocera eléctrica: $20
 
@@ -216,8 +174,8 @@ Entrega inmediata
 
 Entrega inmediata
 
-## Microondas Indurama: $100
+## Microondas Indurama: $80
 
-## Esterilizador: $40
+## Esterilizador: $30
 
 ## Hervidor Tekno: $15
