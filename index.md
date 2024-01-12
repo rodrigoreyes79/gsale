@@ -5,10 +5,22 @@ Entrega el 15 de Diciembre (a menos que se especifique otra fecha en el item en 
 * TOC
 {:toc}
 
-## Adaptador de escritorio a Standing Desk: $40
+## Casco de ciclismo para niño: $15
 
-![image](https://github.com/rodrigoreyes79/gsale/assets/3924426/8ca198c7-522e-473e-81f9-008069e4fe2c)
-![IMG_20231016_072742](https://github.com/rodrigoreyes79/gsale/assets/3924426/31dfb327-d898-42e8-aab8-ef41ccf2aa0a)
+![IMG_20231230_143430](https://github.com/rodrigoreyes79/gsale/assets/3924426/4a028ccf-eff2-46dc-a43c-0970910abfa5)
+
+## Casco de ciclismo para niña: $15
+
+![IMG_20231230_143408](https://github.com/rodrigoreyes79/gsale/assets/3924426/a5b25782-8ab5-4be4-8232-373c0984c78e)
+
+## Casco de ciclismo para niña pequeña: $15
+
+![IMG_20231230_143400](https://github.com/rodrigoreyes79/gsale/assets/3924426/792b7f61-adff-40f6-9325-c35530677407)
+
+## Casco de ciclismo para adulto: $15
+
+![IMG_20231230_143416](https://github.com/rodrigoreyes79/gsale/assets/3924426/ad00a6ce-9497-4ccf-b47e-a8e6b217cfee)
+
 
 ## Tablet Galaxy Tab A SMT-510: $80 ~~$100~~
 
