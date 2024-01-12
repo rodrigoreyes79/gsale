@@ -5,6 +5,12 @@ Entrega el 15 de Diciembre (a menos que se especifique otra fecha en el item en 
 * TOC
 {:toc}
 
+## Arbol de Navidad con adornos y faldón: $80
+
+![WhatsApp Image 2024-01-11 at 19 03 52](https://github.com/rodrigoreyes79/gsale/assets/3924426/4567c36f-4e45-4385-89b4-5aaee74a088b)
+![WhatsApp Image 2024-01-11 at 19 04 18](https://github.com/rodrigoreyes79/gsale/assets/3924426/43d4eab9-3b0b-4cc2-95ee-c75fe8a767fc)
+
+
 ## Casco de ciclismo para niño: $15
 
 ![IMG_20231230_143430](https://github.com/rodrigoreyes79/gsale/assets/3924426/4a028ccf-eff2-46dc-a43c-0970910abfa5)
