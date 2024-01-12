@@ -179,6 +179,7 @@ Entrega inmediata
 No incluye cafetera, molino o el resto de los utensilios que aparecen en la foto.
 
 ![IMG_20231014_133145 (1)](https://github.com/rodrigoreyes79/gsale/assets/3924426/6cec102f-9f9f-4171-adab-6f13b59a8f52)
+![WhatsApp Image 2023-10-14 at 13 32 19](https://github.com/rodrigoreyes79/gsale/assets/3924426/f6a0b28f-67bb-4360-9e92-e8f6010bc51a)
 
 ---
 
