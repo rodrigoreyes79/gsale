@@ -5,6 +5,40 @@ Entrega el 15 de Diciembre (a menos que se especifique otra fecha en el item en 
 * TOC
 {:toc}
 
+## Cooler Coleman con ruedas: 
+
+![IMG_20240113_102807](https://github.com/rodrigoreyes79/gsale/assets/3924426/370c3dd9-fbd5-43a9-9fbe-396670583c45)
+![IMG_20240113_102801](https://github.com/rodrigoreyes79/gsale/assets/3924426/ea6ffa06-e7cb-4cf5-933e-0f15fbf2f8a3)
+![IMG_20240113_103222](https://github.com/rodrigoreyes79/gsale/assets/3924426/e4ac44a0-d5a5-400e-a340-c8512f82ee7a)
+
+## Hidrolavadora Karcher:
+
+![IMG_20240113_102922](https://github.com/rodrigoreyes79/gsale/assets/3924426/a0ebacb9-ef78-4337-9b84-27c142ec9f7f)
+![IMG_20240113_102905](https://github.com/rodrigoreyes79/gsale/assets/3924426/08a16513-74d3-4701-809c-5abad862468c)
+
+## Carpa para acampar Kechua: 
+
+![IMG_20240113_102946](https://github.com/rodrigoreyes79/gsale/assets/3924426/ce0a7fb2-01aa-43dc-babf-42affe5861a0)
+
+## Taladro Percutor de 3/8 Black and Decker:
+
+![IMG_20240113_103042](https://github.com/rodrigoreyes79/gsale/assets/3924426/a8b823b0-a71c-4b96-8e64-a4737300af2e)
+![IMG_20240113_103028](https://github.com/rodrigoreyes79/gsale/assets/3924426/f0b65952-4bbc-4aa9-8086-f27c8e986a8a)
+
+## Inflador para Bicicletas:
+
+![IMG_20240113_103115](https://github.com/rodrigoreyes79/gsale/assets/3924426/251a301d-1f99-4bb9-af2f-464590dfd35c)
+
+## Cortador de césped de hilo:
+
+![IMG_20240113_103151](https://github.com/rodrigoreyes79/gsale/assets/3924426/e9e813c5-bf09-4f35-8659-68a4b714715c)
+![IMG_20240113_103149](https://github.com/rodrigoreyes79/gsale/assets/3924426/5aa6cb5d-1426-404d-85a0-3398627c63fb)
+
+## Pala pequeña: 
+
+![IMG_20240113_103228](https://github.com/rodrigoreyes79/gsale/assets/3924426/06068719-eda6-41c1-9791-7740404cc908)
+
+
 ## Arbol de Navidad con adornos y faldón: $80
 
 ![WhatsApp Image 2024-01-11 at 19 03 52](https://github.com/rodrigoreyes79/gsale/assets/3924426/4567c36f-4e45-4385-89b4-5aaee74a088b)
