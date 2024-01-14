@@ -30,11 +30,6 @@ Entrega inmediata
 ![IMG_20240113_102922](https://github.com/rodrigoreyes79/gsale/assets/3924426/a0ebacb9-ef78-4337-9b84-27c142ec9f7f)
 ![IMG_20240113_102905](https://github.com/rodrigoreyes79/gsale/assets/3924426/08a16513-74d3-4701-809c-5abad862468c)
 
-## Taladro Percutor de 3/8 Black and Decker: $10
-
-![IMG_20240113_103042](https://github.com/rodrigoreyes79/gsale/assets/3924426/a8b823b0-a71c-4b96-8e64-a4737300af2e)
-![IMG_20240113_103028](https://github.com/rodrigoreyes79/gsale/assets/3924426/f0b65952-4bbc-4aa9-8086-f27c8e986a8a)
-
 
 ## Arbol de Navidad con adornos y faldón: $80
 
