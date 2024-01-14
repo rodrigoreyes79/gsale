@@ -130,12 +130,6 @@ Excelente purificar el aire para las personas que tienen alergias.
 
 ![PXL_20231015_001205338](https://github.com/rodrigoreyes79/gsale/assets/3924426/4681da10-ef28-4329-b75e-b68c92e3b4cf)
 
-## Teclado Mecánico Wired Durgod K32 TKL: $40 ~~$50~~
-
-Entrega inmediata
-
-![image](https://github.com/rodrigoreyes79/gsale/assets/3924426/f9b6bd15-1cf4-4386-b437-22cf997a0cd2)
-
 ## Arcoiris Waldorf: $35
 
 ![WhatsApp Image 2023-10-14 at 20 31 35](https://github.com/rodrigoreyes79/gsale/assets/3924426/a4e48792-3a4d-406b-9826-730d226629c8)
