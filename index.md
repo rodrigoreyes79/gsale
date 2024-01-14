@@ -25,10 +25,7 @@ Entrega inmediata
 ![IMG_20240113_102801](https://github.com/rodrigoreyes79/gsale/assets/3924426/ea6ffa06-e7cb-4cf5-933e-0f15fbf2f8a3)
 ![IMG_20240113_103222](https://github.com/rodrigoreyes79/gsale/assets/3924426/e4ac44a0-d5a5-400e-a340-c8512f82ee7a)
 
-## Hidrolavadora Karcher: $30
 
-![IMG_20240113_102922](https://github.com/rodrigoreyes79/gsale/assets/3924426/a0ebacb9-ef78-4337-9b84-27c142ec9f7f)
-![IMG_20240113_102905](https://github.com/rodrigoreyes79/gsale/assets/3924426/08a16513-74d3-4701-809c-5abad862468c)
 
 
 ## Arbol de Navidad con adornos y faldón: $80
@@ -94,14 +91,6 @@ Entrega inmediata
 Entrega inmediata
 
 ![image](https://github.com/rodrigoreyes79/gsale/assets/3924426/0dbdd991-7267-46af-ba67-72386fa525bc)
-
-## Mesa Terraza: $350
-
-Entrega inmediata
-
-![WhatsApp Image 2023-10-16 at 11 42 26](https://github.com/rodrigoreyes79/gsale/assets/3924426/68c3e67e-86f0-4802-9ada-08fa9326a8ff)
-![WhatsApp Image 2023-10-16 at 11 42 26 (1)](https://github.com/rodrigoreyes79/gsale/assets/3924426/9d5bbb01-16d0-4769-baea-096f50f081e4)
-![WhatsApp Image 2023-10-16 at 11 42 26 (2)](https://github.com/rodrigoreyes79/gsale/assets/3924426/96498f26-5977-42de-8beb-50c271143d8f)
 
 ## Mesa aparador: $50
 
@@ -185,7 +174,6 @@ Entrega inmediata
 ## Sofa gris: $280 ~~$380~~
 
 ## Sofa café oscuro marca Colineal (necesita retapizada): $100
-
 
 ## Respaldar cama con cajones: $80
 
