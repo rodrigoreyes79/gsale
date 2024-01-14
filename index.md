@@ -5,6 +5,20 @@ Entrega el 15 de Diciembre (a menos que se especifique otra fecha en el item en 
 * TOC
 {:toc}
 
+## Mesa pequeña infantil redonda con sillas: ~~$40~~ $30
+
+Entrega inmediata
+
+![WhatsApp Image 2024-01-14 at 08 06 06](https://github.com/rodrigoreyes79/gsale/assets/3924426/a6ee8935-9556-4673-b00e-d2caa652734c)
+
+## Sillón cuarto papás: $100 ~~$120~~ ~~$180~~
+
+![WhatsApp Image 2024-01-14 at 11 42 35](https://github.com/rodrigoreyes79/gsale/assets/3924426/6e0c2976-1280-4d95-9a34-a8f64c9d8f8c)
+
+## Microondas Indurama: $80
+
+![PXL_20240114_153557372](https://github.com/rodrigoreyes79/gsale/assets/3924426/43743969-461a-4c2b-9cb9-814fbbacfa2d)
+
 ## Cooler Coleman con ruedas: $40
 
 ![IMG_20240113_102807](https://github.com/rodrigoreyes79/gsale/assets/3924426/370c3dd9-fbd5-43a9-9fbe-396670583c45)
@@ -177,16 +191,8 @@ Entrega inmediata
 
 ## Sofa café oscuro marca Colineal (necesita retapizada): $100
 
-## Mesa pequeña infantil redonda con sillas: ~~$40~~ $30
-
-Entrega inmediata
-
-![WhatsApp Image 2024-01-14 at 08 06 06](https://github.com/rodrigoreyes79/gsale/assets/3924426/a6ee8935-9556-4673-b00e-d2caa652734c)
-
 
 ## Respaldar cama con cajones: $80
-
-## Sillón cuarto papás: $120 ~~$180~~
 
 ## Mueble de madera con cajón: $30
 
@@ -203,8 +209,6 @@ Entrega inmediata
 ## Pizarra de marcadores: $20
 
 Entrega inmediata
-
-## Microondas Indurama: $80
 
 ## Esterilizador: $30
 
