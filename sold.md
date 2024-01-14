@@ -148,6 +148,11 @@ Entrega inmediata
 ![IMG_20231014_142502](https://github.com/rodrigoreyes79/gsale/assets/3924426/2e2afa12-7858-4bb2-a623-49ed9bc85add)
 ![IMG_20231014_142454](https://github.com/rodrigoreyes79/gsale/assets/3924426/f0865895-e517-4584-a9ad-125f58cad955)
 
+## Taladro Percutor de 3/8 Black and Decker: $10
+
+![IMG_20240113_103042](https://github.com/rodrigoreyes79/gsale/assets/3924426/a8b823b0-a71c-4b96-8e64-a4737300af2e)
+![IMG_20240113_103028](https://github.com/rodrigoreyes79/gsale/assets/3924426/f0b65952-4bbc-4aa9-8086-f27c8e986a8a)
+
 ---
 
 # Génesis Casanova
