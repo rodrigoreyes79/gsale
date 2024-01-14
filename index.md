@@ -183,9 +183,12 @@ Entrega inmediata
 
 ## Sofa café oscuro marca Colineal (necesita retapizada): $100
 
-## Mesa pequeña infantil redonda con sillas: $40
+## Mesa pequeña infantil redonda con sillas: ~~$40~~ $30
 
 Entrega inmediata
+
+![WhatsApp Image 2024-01-14 at 08 06 06](https://github.com/rodrigoreyes79/gsale/assets/3924426/a6ee8935-9556-4673-b00e-d2caa652734c)
+
 
 ## Respaldar cama con cajones: $80
 
