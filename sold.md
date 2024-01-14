@@ -186,6 +186,19 @@ No incluye cafetera, molino o el resto de los utensilios que aparecen en la foto
 ![IMG_20231014_133145 (1)](https://github.com/rodrigoreyes79/gsale/assets/3924426/6cec102f-9f9f-4171-adab-6f13b59a8f52)
 ![WhatsApp Image 2023-10-14 at 13 32 19](https://github.com/rodrigoreyes79/gsale/assets/3924426/f6a0b28f-67bb-4360-9e92-e8f6010bc51a)
 
+## Mesa Terraza: $300
+
+Entrega inmediata
+
+![WhatsApp Image 2023-10-16 at 11 42 26](https://github.com/rodrigoreyes79/gsale/assets/3924426/68c3e67e-86f0-4802-9ada-08fa9326a8ff)
+![WhatsApp Image 2023-10-16 at 11 42 26 (1)](https://github.com/rodrigoreyes79/gsale/assets/3924426/9d5bbb01-16d0-4769-baea-096f50f081e4)
+![WhatsApp Image 2023-10-16 at 11 42 26 (2)](https://github.com/rodrigoreyes79/gsale/assets/3924426/96498f26-5977-42de-8beb-50c271143d8f)
+
+## Hidrolavadora Karcher: $30
+
+![IMG_20240113_102922](https://github.com/rodrigoreyes79/gsale/assets/3924426/a0ebacb9-ef78-4337-9b84-27c142ec9f7f)
+![IMG_20240113_102905](https://github.com/rodrigoreyes79/gsale/assets/3924426/08a16513-74d3-4701-809c-5abad862468c)
+
 ---
 
 # Adam Pruitt
