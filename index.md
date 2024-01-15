@@ -19,14 +19,6 @@ Entrega inmediata
 
 ![PXL_20240114_153557372](https://github.com/rodrigoreyes79/gsale/assets/3924426/43743969-461a-4c2b-9cb9-814fbbacfa2d)
 
-## Cooler Coleman con ruedas: $40
-
-![IMG_20240113_102807](https://github.com/rodrigoreyes79/gsale/assets/3924426/370c3dd9-fbd5-43a9-9fbe-396670583c45)
-![IMG_20240113_102801](https://github.com/rodrigoreyes79/gsale/assets/3924426/ea6ffa06-e7cb-4cf5-933e-0f15fbf2f8a3)
-![IMG_20240113_103222](https://github.com/rodrigoreyes79/gsale/assets/3924426/e4ac44a0-d5a5-400e-a340-c8512f82ee7a)
-
-
-
 
 ## Arbol de Navidad con adornos y faldón: $80
 
@@ -45,10 +37,6 @@ Entrega inmediata
 ## Casco de ciclismo para niña pequeña: $15
 
 ![IMG_20231230_143400](https://github.com/rodrigoreyes79/gsale/assets/3924426/792b7f61-adff-40f6-9325-c35530677407)
-
-## Casco de ciclismo para adulto: $15
-
-![IMG_20231230_143416](https://github.com/rodrigoreyes79/gsale/assets/3924426/ad00a6ce-9497-4ccf-b47e-a8e6b217cfee)
 
 
 ## Tablet Galaxy Tab A SMT-510: $80 ~~$100~~
@@ -112,18 +100,6 @@ Entrega inmediata
 
 ![IMG_20231014_131253](https://github.com/rodrigoreyes79/gsale/assets/3924426/d99caa58-8a2f-4d2b-a5cf-b330e3ae09fd)
 
-## Mesa pequeña centro de madera: $30 ~~$40~~
-
-Entrega inmediata. No incluye adornos de la foto.
-
-![WhatsApp Image 2023-10-14 at 17 34 29](https://github.com/rodrigoreyes79/gsale/assets/3924426/6aa038a6-b35d-47c4-a877-b0ff0e2eec2b)
-
-## Purificador de Aire Coway Airmega AP-1512HH: $100 ~~$150~~
-
-Excelente purificar el aire para las personas que tienen alergias.
-
-![IMG_20231014_180314](https://github.com/rodrigoreyes79/gsale/assets/3924426/afdc441b-58b0-40a3-b246-71dff11c0e92)
-
 ## Nebulizador Pediátrico: $20 ~~$40~~
 
 ![PXL_20231015_001205338](https://github.com/rodrigoreyes79/gsale/assets/3924426/4681da10-ef28-4329-b75e-b68c92e3b4cf)
@@ -182,8 +158,6 @@ Entrega inmediata
 Entrega inmediata
 
 ## Purificador de agua: $100 ~~$200~~
-
-## Repisa con ruedas: $50
 
 ## Licuadora de alta potencia: $40
 
