@@ -49,6 +49,12 @@ Entrega inmediata
 ![IMG_20231014_133756](https://github.com/rodrigoreyes79/gsale/assets/3924426/a8ded512-39e1-49a0-8d19-6b0467b55865)
 Especificación: http://arch.casio-intl.com/latin/es/emi/standard/ctk3200/
 
+## Cooler Coleman con ruedas: $40
+
+![IMG_20240113_102807](https://github.com/rodrigoreyes79/gsale/assets/3924426/370c3dd9-fbd5-43a9-9fbe-396670583c45)
+![IMG_20240113_102801](https://github.com/rodrigoreyes79/gsale/assets/3924426/ea6ffa06-e7cb-4cf5-933e-0f15fbf2f8a3)
+![IMG_20240113_103222](https://github.com/rodrigoreyes79/gsale/assets/3924426/e4ac44a0-d5a5-400e-a340-c8512f82ee7a)
+
 ---
 
 # Gustavo Rodríguez
@@ -106,6 +112,12 @@ Incluye mueble de la foto.
 Entrega inmediata
 
 ![IMG_20231014_172859](https://github.com/rodrigoreyes79/gsale/assets/3924426/88a69666-6015-442f-98e0-301b51563da3)
+
+## Casco de ciclismo para adulto: $15
+
+![IMG_20231230_143416](https://github.com/rodrigoreyes79/gsale/assets/3924426/ad00a6ce-9497-4ccf-b47e-a8e6b217cfee)
+
+## Repisa con ruedas: Gratis
 
 ---
 
@@ -216,3 +228,13 @@ Entrega inmediata
 ## ⁠⁠Mati’s Desk: $40
 
 ## ⁠⁠Monitor stand: Free
+
+---
+
+Marcelo Santillán
+
+## Purificador de Aire Coway Airmega AP-1512HH: $100 ~~$150~~
+
+Excelente purificar el aire para las personas que tienen alergias.
+
+![IMG_20231014_180314](https://github.com/rodrigoreyes79/gsale/assets/3924426/afdc441b-58b0-40a3-b246-71dff11c0e92)
