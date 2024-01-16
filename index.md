@@ -5,13 +5,13 @@ Entrega el 15 de Diciembre (a menos que se especifique otra fecha en el item en 
 * TOC
 {:toc}
 
-## Mesa pequeña infantil redonda con sillas: ~~$40~~ $30
+## Mesa pequeña infantil redonda con sillas: $30
 
 Entrega inmediata
 
 ![WhatsApp Image 2024-01-14 at 08 06 06](https://github.com/rodrigoreyes79/gsale/assets/3924426/a6ee8935-9556-4673-b00e-d2caa652734c)
 
-## Sillón cuarto papás: $100 ~~$120~~ ~~$180~~
+## Sillón cuarto papás: $100 
 
 ![WhatsApp Image 2024-01-14 at 11 42 35](https://github.com/rodrigoreyes79/gsale/assets/3924426/6e0c2976-1280-4d95-9a34-a8f64c9d8f8c)
 
@@ -54,13 +54,13 @@ Entrega inmediata
 ![WhatsApp Image 2023-10-18 at 10 01 24](https://github.com/rodrigoreyes79/gsale/assets/3924426/e6cf00f1-18cf-43c3-982d-a50f335fd102)
 ![WhatsApp Image 2023-10-18 at 10 01 24 (1)](https://github.com/rodrigoreyes79/gsale/assets/3924426/3e3c227c-d882-429a-89fb-47028284244b)
 
-## Repisa libros - 29 x 114 (alto máximo) 188 (alto mínimo) x 200 ancho: $120 ~~$180~~
+## Repisa libros - 29 x 114 (alto máximo) 188 (alto mínimo) x 200 ancho: $120 
 
 ![WhatsApp Image 2023-10-18 at 09 48 23](https://github.com/rodrigoreyes79/gsale/assets/3924426/560ad045-9351-4323-bcd3-d2e743a17bc3)
 ![WhatsApp Image 2023-10-18 at 09 48 24](https://github.com/rodrigoreyes79/gsale/assets/3924426/160c3120-20d2-43f7-8f31-23d819820b80)
 ![WhatsApp Image 2023-10-18 at 09 48 24 (1)](https://github.com/rodrigoreyes79/gsale/assets/3924426/18b2ef11-d8b2-4f6f-bd8f-da0179fa9c38)
 
-## Mueble cajones 47 x 172 x 45 cm: $100 ~~$120~~
+## Mueble cajones 47 x 172 x 45 cm: $100
 
 Entrega inmediata
 
@@ -68,7 +68,7 @@ Entrega inmediata
 ![WhatsApp Image 2023-10-16 at 12 01 00](https://github.com/rodrigoreyes79/gsale/assets/3924426/b0d3fbfa-5ba0-4c59-ac58-050e8294a384)
 ![WhatsApp Image 2023-10-16 at 12 01 11](https://github.com/rodrigoreyes79/gsale/assets/3924426/6701ae4c-3867-4979-bf9f-b23e39c70160)
 
-## Mouse Logitec Lift: $30 ~~$60~~
+## Mouse Logitec Lift: $30 
 
 Entrega inmediata
 
@@ -137,7 +137,7 @@ Entrega inmediata
 
 ## Mesa de comedor: $400
 
-## Sofa gris: $280 ~~$380~~
+## Sofa gris: $280 
 
 ## Sofa café oscuro marca Colineal (necesita retapizada): $100
 
@@ -147,7 +147,7 @@ Entrega inmediata
 
 Entrega inmediata
 
-## Purificador de agua: $100 ~~$200~~
+## Purificador de agua: $100 
 
 ## Licuadora de alta potencia: $40
 
