@@ -39,12 +39,6 @@ Entrega inmediata
 ![IMG_20231230_143400](https://github.com/rodrigoreyes79/gsale/assets/3924426/792b7f61-adff-40f6-9325-c35530677407)
 
 
-## Tablet Galaxy Tab A SMT-510: $80 ~~$100~~
-
-![image](https://github.com/rodrigoreyes79/gsale/assets/3924426/24c97dae-6caf-4fcb-a864-8fde2248fa6b)
-![IMG_20231019_084556](https://github.com/rodrigoreyes79/gsale/assets/3924426/661dd744-7987-471d-be59-b0109d8db899)
-
-
 ## Mesa de madera 79 x 79 x 73 cm: $50
 
 Entrega inmediata
@@ -99,10 +93,6 @@ Entrega inmediata
 Entrega inmediata
 
 ![IMG_20231014_131253](https://github.com/rodrigoreyes79/gsale/assets/3924426/d99caa58-8a2f-4d2b-a5cf-b330e3ae09fd)
-
-## Nebulizador Pediátrico: $20 ~~$40~~
-
-![PXL_20231015_001205338](https://github.com/rodrigoreyes79/gsale/assets/3924426/4681da10-ef28-4329-b75e-b68c92e3b4cf)
 
 ## Arcoiris Waldorf: $35
 
