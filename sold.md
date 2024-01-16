@@ -238,3 +238,12 @@ Marcelo Santillán
 Excelente purificar el aire para las personas que tienen alergias.
 
 ![IMG_20231014_180314](https://github.com/rodrigoreyes79/gsale/assets/3924426/afdc441b-58b0-40a3-b246-71dff11c0e92)
+
+---
+
+# Diego Reyes
+
+## Tablet Galaxy Tab A SMT-510: $80 ~~$100~~
+
+![image](https://github.com/rodrigoreyes79/gsale/assets/3924426/24c97dae-6caf-4fcb-a864-8fde2248fa6b)
+![IMG_20231019_084556](https://github.com/rodrigoreyes79/gsale/assets/3924426/661dd744-7987-471d-be59-b0109d8db899)
