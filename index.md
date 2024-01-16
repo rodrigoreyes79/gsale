@@ -78,17 +78,17 @@ Entrega inmediata
 
 ![IMG_20231014_133813](https://github.com/rodrigoreyes79/gsale/assets/3924426/4cb7eab8-39d6-4e4d-adc1-7097d12345a4)
 
-## Lego Minecraft The Fox Lodge 193pcs: $26
+## [Nuevos y Sellados!!!] Lego Minecraft The Fox Lodge 193pcs: $20
 
 Entrega inmediata
 
-## Lego Minecraft The Coral Reef 92pcs: $14
+## [Nuevos y Sellados!!!] Lego Minecraft The Coral Reef 92pcs: $10
 
 Entrega inmediata
 
 ![IMG_20231014_131206](https://github.com/rodrigoreyes79/gsale/assets/3924426/1be1e625-905d-4d52-a5ad-59a6bec4f770)
 
-## Lego Minecraft The Abandoned Mine 248pcs: $27
+## [Nuevos y Sellados!!!] Lego Minecraft The Abandoned Mine 248pcs: $25
 
 Entrega inmediata
 
