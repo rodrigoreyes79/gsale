@@ -247,3 +247,29 @@ Excelente purificar el aire para las personas que tienen alergias.
 
 ![image](https://github.com/rodrigoreyes79/gsale/assets/3924426/24c97dae-6caf-4fcb-a864-8fde2248fa6b)
 ![IMG_20231019_084556](https://github.com/rodrigoreyes79/gsale/assets/3924426/661dd744-7987-471d-be59-b0109d8db899)
+
+---
+
+# Carmela Amigas Guayaquil
+
+## Escritorio Julieta: $45
+
+## Casco de ciclismo para niño: $15
+
+![IMG_20231230_143430](https://github.com/rodrigoreyes79/gsale/assets/3924426/4a028ccf-eff2-46dc-a43c-0970910abfa5)
+
+## Casco de ciclismo para niña: $15
+
+![IMG_20231230_143408](https://github.com/rodrigoreyes79/gsale/assets/3924426/a5b25782-8ab5-4be4-8232-373c0984c78e)
+
+---
+
+# Alejandra Amigas Guayaquil
+
+## Mueble cajones 47 x 172 x 45 cm: $100
+
+Entrega inmediata
+
+![WhatsApp Image 2023-10-16 at 12 00 52](https://github.com/rodrigoreyes79/gsale/assets/3924426/0198eafb-0c08-4f84-91bc-9aaa03d09b7e)
+![WhatsApp Image 2023-10-16 at 12 01 00](https://github.com/rodrigoreyes79/gsale/assets/3924426/b0d3fbfa-5ba0-4c59-ac58-050e8294a384)
+![WhatsApp Image 2023-10-16 at 12 01 11](https://github.com/rodrigoreyes79/gsale/assets/3924426/6701ae4c-3867-4979-bf9f-b23e39c70160)
