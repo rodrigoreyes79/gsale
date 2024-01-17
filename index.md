@@ -5,11 +5,6 @@ Entrega el 15 de Diciembre (a menos que se especifique otra fecha en el item en 
 * TOC
 {:toc}
 
-## Melissa & Doug casa de muñecas de madera con ascensor y estacionamiento 75x60: $40
-
-![WhatsApp Image 2024-01-12 at 19 22 55](https://github.com/rodrigoreyes79/gsale/assets/3924426/80edc0d5-43aa-456a-86d8-e96c5b29fed1)
-
-
 ## Mesa pequeña infantil redonda con sillas: $30
 
 Entrega inmediata
