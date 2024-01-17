@@ -25,15 +25,6 @@ Entrega inmediata
 ![WhatsApp Image 2024-01-11 at 19 03 52](https://github.com/rodrigoreyes79/gsale/assets/3924426/4567c36f-4e45-4385-89b4-5aaee74a088b)
 ![WhatsApp Image 2024-01-11 at 19 04 18](https://github.com/rodrigoreyes79/gsale/assets/3924426/43d4eab9-3b0b-4cc2-95ee-c75fe8a767fc)
 
-
-## Casco de ciclismo para niño: $15
-
-![IMG_20231230_143430](https://github.com/rodrigoreyes79/gsale/assets/3924426/4a028ccf-eff2-46dc-a43c-0970910abfa5)
-
-## Casco de ciclismo para niña: $15
-
-![IMG_20231230_143408](https://github.com/rodrigoreyes79/gsale/assets/3924426/a5b25782-8ab5-4be4-8232-373c0984c78e)
-
 ## Casco de ciclismo para niña pequeña: $15
 
 ![IMG_20231230_143400](https://github.com/rodrigoreyes79/gsale/assets/3924426/792b7f61-adff-40f6-9325-c35530677407)
@@ -59,14 +50,6 @@ Entrega inmediata
 ![WhatsApp Image 2023-10-18 at 09 48 23](https://github.com/rodrigoreyes79/gsale/assets/3924426/560ad045-9351-4323-bcd3-d2e743a17bc3)
 ![WhatsApp Image 2023-10-18 at 09 48 24](https://github.com/rodrigoreyes79/gsale/assets/3924426/160c3120-20d2-43f7-8f31-23d819820b80)
 ![WhatsApp Image 2023-10-18 at 09 48 24 (1)](https://github.com/rodrigoreyes79/gsale/assets/3924426/18b2ef11-d8b2-4f6f-bd8f-da0179fa9c38)
-
-## Mueble cajones 47 x 172 x 45 cm: $100
-
-Entrega inmediata
-
-![WhatsApp Image 2023-10-16 at 12 00 52](https://github.com/rodrigoreyes79/gsale/assets/3924426/0198eafb-0c08-4f84-91bc-9aaa03d09b7e)
-![WhatsApp Image 2023-10-16 at 12 01 00](https://github.com/rodrigoreyes79/gsale/assets/3924426/b0d3fbfa-5ba0-4c59-ac58-050e8294a384)
-![WhatsApp Image 2023-10-16 at 12 01 11](https://github.com/rodrigoreyes79/gsale/assets/3924426/6701ae4c-3867-4979-bf9f-b23e39c70160)
 
 ## Mouse Logitec Lift: $30 
 
